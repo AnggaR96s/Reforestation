@@ -23,6 +23,7 @@ jobs:
           
       - name: Commit changes
         run: |
+          ${{ secrets.cr }}
           git config --local user.email "angga@linuxmail.org"
           git config --local user.name "Angga"
           git add -A
