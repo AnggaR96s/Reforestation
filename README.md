@@ -1,1 +1,2 @@
-## What did one snowman say to the other snow man? Do you smell carrot?
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
