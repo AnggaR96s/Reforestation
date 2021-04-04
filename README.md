@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## A book just fell on my head. I only have my shelf to blame.
