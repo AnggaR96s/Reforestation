@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## A termite walks into a bar and asks “Is the bar tender here?”
