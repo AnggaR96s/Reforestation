@@ -1,1 +1,1 @@
-## What did Michael Jackson name his denim store?    Billy Jeans!
+## Why did the tomato blush? Because it saw the salad dressing.
