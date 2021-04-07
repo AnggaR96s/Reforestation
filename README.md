@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## Why do pirates not know the alphabet? They always get stuck at "C".
