@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
