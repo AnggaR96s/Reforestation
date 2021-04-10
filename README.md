@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
