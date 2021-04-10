@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## What does a pirate pay for his corn? A buccaneer!
