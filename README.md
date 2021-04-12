@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Never take advice from electrons. They are always negative.
