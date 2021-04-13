@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## How do you get two whales in a car? Start in England and drive West.
