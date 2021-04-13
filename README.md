@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Why did the tomato blush? Because it saw the salad dressing.
