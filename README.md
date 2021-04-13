@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## How does a scientist freshen their breath? With experi-mints!
