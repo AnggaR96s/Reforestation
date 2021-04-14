@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## How do you find Will Smith in the snow?  Look for fresh prints.
