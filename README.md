@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
