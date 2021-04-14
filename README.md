@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## How many South Americans does it take to change a lightbulb? A Brazilian
