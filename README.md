@@ -1,1 +1,1 @@
-## I fear for the calendar, its days are numbered.
+## Where do you learn to make banana splits? At sundae school.
