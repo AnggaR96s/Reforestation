@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
