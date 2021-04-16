@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
