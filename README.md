@@ -1,1 +1,1 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
