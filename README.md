@@ -1,1 +1,1 @@
-## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
