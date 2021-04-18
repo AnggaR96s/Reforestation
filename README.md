@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
