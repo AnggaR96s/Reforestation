@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## Every night at 11:11, I make a wish that someone will come fix my broken clock.
