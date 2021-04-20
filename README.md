@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## Where does Napoleon keep his armies? In his sleevies.
