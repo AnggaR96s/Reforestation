@@ -1,1 +1,1 @@
-## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
+## Man, I really love my furniture... me and my recliner go way back.
