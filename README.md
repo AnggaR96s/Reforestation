@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## Two silk worms had a race. They ended up in a tie.
