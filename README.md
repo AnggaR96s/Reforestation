@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## How do you steal a coat? You jacket.
