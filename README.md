@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## What did the shy pebble wish for? That she was a little boulder.
