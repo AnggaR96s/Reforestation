@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## Why are fish easy to weigh? Because they have their own scales.
