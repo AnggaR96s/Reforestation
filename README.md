@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
