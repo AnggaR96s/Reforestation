@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## Two dyslexics walk into a bra.
