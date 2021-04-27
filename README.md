@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## What did the calculator say to the student? You can count on me.
