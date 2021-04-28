@@ -1,1 +1,1 @@
-## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
