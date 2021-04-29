@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
