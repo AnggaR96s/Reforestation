@@ -1,1 +1,2 @@
-## Today, my son asked "Can I have a book mark?" and I burst into tears. 11 years old and he still doesn't know my name is Brian.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
