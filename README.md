@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
