@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
