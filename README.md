@@ -1,1 +1,1 @@
-## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
+## I asked a frenchman if he played video games. He said "Wii"
