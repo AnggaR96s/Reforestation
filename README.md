@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
