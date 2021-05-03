@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
