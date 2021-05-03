@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## You can't trust a ladder. It will always let you down
