@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## What do you call corn that joins the army? Kernel.
