@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## Some people eat light bulbs. They say it's a nice light snack.
