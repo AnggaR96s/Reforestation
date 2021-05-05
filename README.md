@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## What do prisoners use to call each other? Cell phones.
