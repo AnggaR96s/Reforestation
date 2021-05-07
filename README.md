@@ -1,1 +1,1 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
