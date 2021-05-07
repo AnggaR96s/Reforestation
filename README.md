@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
