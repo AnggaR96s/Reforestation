@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## Me and my mates are in a band called Duvet. We're a cover band.
