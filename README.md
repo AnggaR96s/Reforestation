@@ -1,1 +1,1 @@
-## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
