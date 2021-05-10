@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
