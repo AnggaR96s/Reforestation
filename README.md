@@ -1,1 +1,1 @@
-## I went to a book store and asked the saleswoman where the Self Help section was, she said if she told me it would defeat the purpose.
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
