@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
