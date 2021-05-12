@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
