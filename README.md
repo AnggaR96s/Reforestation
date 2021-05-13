@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
