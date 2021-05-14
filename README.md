@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## Why is the ocean always blue? Because the shore never waves back.
