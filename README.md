@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Why are basketball players messy eaters? Because they are always dribbling.
