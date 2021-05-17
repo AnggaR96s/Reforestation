@@ -1,1 +1,1 @@
-## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
+## What's black and white and read all over? The newspaper.
