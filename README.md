@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## What do I look like? A JOKE MACHINE!?
