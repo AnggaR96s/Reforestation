@@ -1,1 +1,1 @@
-## How does a scientist freshen their breath? With experi-mints!
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
