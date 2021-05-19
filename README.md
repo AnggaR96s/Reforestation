@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## How does a scientist freshen their breath? With experi-mints!
