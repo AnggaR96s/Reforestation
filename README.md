@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## Shout out to my grandma, that's the only way she can hear.
