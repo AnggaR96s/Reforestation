@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## What was a more important invention than the first telephone? The second one.
