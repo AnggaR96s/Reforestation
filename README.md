@@ -1,1 +1,1 @@
-## Conjunctivitis.com – now that’s a site for sore eyes.
+## What's the best thing about elevator jokes? They work on so many levels.
