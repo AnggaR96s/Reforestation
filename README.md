@@ -1,1 +1,1 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
