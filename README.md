@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
