@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
