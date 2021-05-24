@@ -1,1 +1,1 @@
-## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
