@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
