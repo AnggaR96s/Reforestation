@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
