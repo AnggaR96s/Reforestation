@@ -1,1 +1,1 @@
-## They laughed when I said I wanted to be a comedian – they’re not laughing now.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
