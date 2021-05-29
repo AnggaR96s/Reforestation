@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
