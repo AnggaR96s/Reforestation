@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## Why is no one friends with Dracula? Because he's a pain in the neck.
