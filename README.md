@@ -1,1 +1,1 @@
-## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
