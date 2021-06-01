@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
