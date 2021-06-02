@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
