@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## Why do cows wear bells? Because their horns don't work.
