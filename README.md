@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
