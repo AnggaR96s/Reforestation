@@ -1,1 +1,1 @@
-## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
