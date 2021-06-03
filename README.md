@@ -1,1 +1,1 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## What do you get when you cross a rabbit with a water hose? Hare spray.
