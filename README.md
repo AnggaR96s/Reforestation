@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
