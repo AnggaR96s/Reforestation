@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## What did one plate say to the other plate? Dinner is on me!
