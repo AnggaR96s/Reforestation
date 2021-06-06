@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## Sore throats are a pain in the neck!
