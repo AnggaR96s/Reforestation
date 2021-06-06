@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## I thought about going on an all-almond diet. But that's just nuts.
