@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## What do you get when you cross a rabbit with a water hose? Hare spray.
