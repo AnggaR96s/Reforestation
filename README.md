@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
