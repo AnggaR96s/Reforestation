@@ -1,1 +1,1 @@
-## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
