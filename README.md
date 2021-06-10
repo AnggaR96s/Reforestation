@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
