@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## What do you call your friend who stands in a hole? Phil.
