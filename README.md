@@ -1,1 +1,2 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## What is the best way to carve?
+## Whittle by whittle.
