@@ -1,1 +1,1 @@
-## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
