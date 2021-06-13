@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
