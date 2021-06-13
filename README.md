@@ -1,1 +1,1 @@
-## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
