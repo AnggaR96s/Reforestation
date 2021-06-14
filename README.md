@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
