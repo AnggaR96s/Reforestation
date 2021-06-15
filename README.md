@@ -1,1 +1,1 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
