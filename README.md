@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
