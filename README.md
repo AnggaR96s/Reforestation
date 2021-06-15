@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
