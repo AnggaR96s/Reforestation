@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
