@@ -1,1 +1,1 @@
-## What did one wall say to the other wall? I'll meet you at the corner!
+## Our wedding was so beautiful, even the cake was in tiers.
