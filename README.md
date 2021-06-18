@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## What creature is smarter than a talking parrot? A spelling bee.
