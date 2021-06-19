@@ -1,1 +1,1 @@
-## I went to a book store and asked the saleswoman where the Self Help section was, she said if she told me it would defeat the purpose.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
