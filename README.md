@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## Don't trust atoms. They make up everything.
