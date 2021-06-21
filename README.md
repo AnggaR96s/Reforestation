@@ -1,1 +1,1 @@
-## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
