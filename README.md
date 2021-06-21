@@ -1,1 +1,1 @@
-## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
