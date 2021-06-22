@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## A farmer had 297 cows, when he rounded them up, he found he had 300
