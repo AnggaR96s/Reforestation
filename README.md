@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## What kind of dinosaur loves to sleep? A stega-snore-us.
