@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
