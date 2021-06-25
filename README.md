@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
