@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## I considered building the patio by myself. But I didn't have the stones.
