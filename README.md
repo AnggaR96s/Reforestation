@@ -1,1 +1,1 @@
-## I used to be addicted to soap, but I'm clean now.
+## What do you call a duck that gets all A's? A wise quacker.
