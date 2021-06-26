@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## I heard there was a new store called Moderation. They have everything there
