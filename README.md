@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## You can't trust a ladder. It will always let you down
