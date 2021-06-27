@@ -1,1 +1,1 @@
-## The shovel was a ground-breaking invention.
+## Thanks for explaining the word "many" to me. It means a lot.
