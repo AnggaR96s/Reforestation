@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
