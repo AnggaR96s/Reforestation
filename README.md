@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
