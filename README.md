@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## What do you call an alligator in a vest? An in-vest-igator!
