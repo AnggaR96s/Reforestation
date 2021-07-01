@@ -1,1 +1,1 @@
-## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
