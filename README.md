@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
