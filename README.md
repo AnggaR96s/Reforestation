@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
