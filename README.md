@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
