@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## What do you call a boomerang that won't come back? A stick.
