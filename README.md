@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## Where do you learn to make banana splits? At sundae school.
