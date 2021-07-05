@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
