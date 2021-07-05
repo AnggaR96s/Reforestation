@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
