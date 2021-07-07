@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## My sister bet me $15 that I couldn't build a car out of spaghetti. You should have seen the look on her face as I drove pasta.
