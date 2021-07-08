@@ -1,1 +1,1 @@
-## I started a new business making yachts in my attic this year...the sails are going through the roof
+## What do you get when you cross a chicken with a skunk? A fowl smell!
