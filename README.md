@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
