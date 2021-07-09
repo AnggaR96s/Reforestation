@@ -1,1 +1,1 @@
-## Why was the broom late for the meeting? He overswept.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
