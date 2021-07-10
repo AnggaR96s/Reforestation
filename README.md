@@ -1,1 +1,1 @@
-## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
