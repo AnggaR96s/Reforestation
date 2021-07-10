@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
