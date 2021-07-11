@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## I couldn't figure out how the seat belt worked. Then it just clicked.
