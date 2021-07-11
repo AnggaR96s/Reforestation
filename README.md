@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## How do you find Will Smith in the snow?  Look for fresh prints.
