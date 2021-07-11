@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
