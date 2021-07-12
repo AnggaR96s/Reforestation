@@ -1,1 +1,1 @@
-## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
