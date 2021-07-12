@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## What did one snowman say to the other snow man? Do you smell carrot?
