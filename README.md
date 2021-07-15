@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
