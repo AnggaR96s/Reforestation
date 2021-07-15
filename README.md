@@ -1,1 +1,1 @@
-## What kind of magic do cows believe in? MOODOO.
+## How do hens stay fit? They always egg-cercise!
