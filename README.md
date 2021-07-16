@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Why do bears have hairy coats? Fur protection.
