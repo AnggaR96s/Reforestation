@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
