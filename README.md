@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## There's not really any training for garbagemen. They just pick things up as they go.
