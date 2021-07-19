@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## What does a pirate pay for his corn? A buccaneer!
