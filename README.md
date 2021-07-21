@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
