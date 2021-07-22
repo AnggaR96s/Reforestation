@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## What is a vampire's favorite fruit? A blood orange.
