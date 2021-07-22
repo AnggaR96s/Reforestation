@@ -1,1 +1,1 @@
-## I used to think I was indecisive, but now I'm not sure.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
