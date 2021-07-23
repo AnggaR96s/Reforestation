@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## I’m only familiar with 25 letters in the English language. I don’t know why.
