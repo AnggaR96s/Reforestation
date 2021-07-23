@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## Why are basketball players messy eaters? Because they are always dribbling.
