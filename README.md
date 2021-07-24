@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## What did the piece of bread say to the knife? Butter me up.
