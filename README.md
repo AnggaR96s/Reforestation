@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
