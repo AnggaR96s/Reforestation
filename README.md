@@ -1,1 +1,1 @@
-## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+## Why do birds fly south for the winter? Because it's too far to walk.
