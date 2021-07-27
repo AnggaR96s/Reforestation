@@ -1,1 +1,1 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
