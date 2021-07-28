@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
