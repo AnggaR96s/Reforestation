@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
