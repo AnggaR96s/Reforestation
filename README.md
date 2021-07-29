@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## I’m reading a book on the history of glue – can’t put it down.
