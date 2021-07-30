@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
