@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## Every night at 11:11, I make a wish that someone will come fix my broken clock.
