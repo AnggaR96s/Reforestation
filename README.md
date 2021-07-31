@@ -1,1 +1,1 @@
-## Do you know where you can get chicken broth in bulk? The stock market.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
