@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
