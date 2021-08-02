@@ -1,1 +1,1 @@
-## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
