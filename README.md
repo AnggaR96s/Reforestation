@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
