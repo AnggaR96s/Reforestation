@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
