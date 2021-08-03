@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
