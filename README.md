@@ -1,1 +1,1 @@
-## Can February march? No, but April may.
+## A steak pun is a rare medium well done.
