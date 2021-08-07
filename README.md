@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
