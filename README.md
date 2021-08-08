@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## I used to be addicted to soap, but I'm clean now.
