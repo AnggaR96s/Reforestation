@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## I got an A on my origami assignment when I turned my paper into my teacher
