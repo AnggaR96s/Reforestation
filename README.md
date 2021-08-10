@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
