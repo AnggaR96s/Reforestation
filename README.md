@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
