@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
