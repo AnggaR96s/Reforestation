@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## Did you hear about the kidnapping at school? It's ok, he woke up.
