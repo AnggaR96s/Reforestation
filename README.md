@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## Why didn’t the skeleton cross the road? Because he had no guts.
