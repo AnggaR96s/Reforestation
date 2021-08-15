@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
