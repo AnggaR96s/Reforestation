@@ -1,1 +1,2 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
