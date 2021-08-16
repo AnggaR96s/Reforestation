@@ -1,1 +1,1 @@
-## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
+## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
