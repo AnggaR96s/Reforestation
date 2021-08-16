@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
