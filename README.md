@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
