@@ -1,1 +1,1 @@
-## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
+## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
