@@ -1,1 +1,2 @@
-## What did the calculator say to the student? You can count on me.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
