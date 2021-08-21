@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
