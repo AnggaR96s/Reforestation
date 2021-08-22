@@ -1,1 +1,1 @@
-## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
