@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
