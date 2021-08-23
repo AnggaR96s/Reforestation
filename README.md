@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
