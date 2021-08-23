@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
