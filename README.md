@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
