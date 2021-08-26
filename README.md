@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
