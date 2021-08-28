@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## Have you heard about the film "Constipation", you probably haven't because it's not out yet.
