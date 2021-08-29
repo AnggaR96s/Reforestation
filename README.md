@@ -1,1 +1,1 @@
-## If you walk into a forest and cut down a tree, but the tree doesn't understand why you cut it down, do you think it's stumped?
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
