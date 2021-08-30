@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
