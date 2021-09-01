@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## I got an A on my origami assignment when I turned my paper into my teacher
