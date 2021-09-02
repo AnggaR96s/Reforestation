@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
