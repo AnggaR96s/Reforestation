@@ -1,1 +1,1 @@
-## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
