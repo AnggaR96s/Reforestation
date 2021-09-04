@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
