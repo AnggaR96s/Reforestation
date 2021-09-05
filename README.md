@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## Did you know that ghosts call their true love their ghoul-friend?
