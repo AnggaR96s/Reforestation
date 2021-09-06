@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
