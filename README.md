@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## Why did the tree go to the dentist? It needed a root canal.
