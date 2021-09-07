@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
