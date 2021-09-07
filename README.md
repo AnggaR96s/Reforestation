@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## I broke my finger at work today, on the other hand I'm completely fine.
