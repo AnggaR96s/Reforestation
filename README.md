@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
