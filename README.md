@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## I hate perforated lines, they're tearable.
