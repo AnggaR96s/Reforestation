@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
