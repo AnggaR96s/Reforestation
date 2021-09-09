@@ -1,1 +1,1 @@
-## I hate perforated lines, they're tearable.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
