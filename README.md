@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## What does a clock do when it's hungry? It goes back four seconds!
