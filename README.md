@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## I used to work in a shoe recycling shop. It was sole destroying.
