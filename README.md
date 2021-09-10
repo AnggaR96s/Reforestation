@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
