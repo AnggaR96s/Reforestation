@@ -1,1 +1,2 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## What's large, grey, and doesn't matter?
+## An irrelephant.
