@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## I broke my finger at work today, on the other hand I'm completely fine.
