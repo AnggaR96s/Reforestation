@@ -1,1 +1,1 @@
-## How does a penguin build it’s house? Igloos it together.
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
