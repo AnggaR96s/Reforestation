@@ -1,1 +1,1 @@
-## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+## Milk is also the fastest liquid on earth – its pasteurized before you even see it
