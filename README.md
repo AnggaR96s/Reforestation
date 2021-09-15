@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## What is a witch's favorite subject in school? Spelling!
