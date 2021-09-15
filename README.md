@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
