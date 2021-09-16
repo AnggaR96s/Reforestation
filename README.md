@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
