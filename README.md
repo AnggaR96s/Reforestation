@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
