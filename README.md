@@ -1,1 +1,1 @@
-## I used to be addicted to soap, but I'm clean now.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
