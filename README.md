@@ -1,1 +1,1 @@
-## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
