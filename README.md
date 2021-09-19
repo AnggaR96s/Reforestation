@@ -1,1 +1,1 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
