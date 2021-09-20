@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## Where do you learn to make banana splits? At sundae school.
