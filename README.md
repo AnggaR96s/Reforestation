@@ -1,1 +1,3 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## I used to work at a stationery store.  But, I didn't feel like I was going anywhere.
+## 
+## So, I got a job at a travel agency.  Now, I know I'll be going places.
