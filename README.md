@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## I was thinking about moving to Moscow but there is no point Russian into things.
