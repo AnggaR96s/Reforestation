@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Whoever invented the knock-knock joke should get a no bell prize.
