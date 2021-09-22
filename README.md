@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## How come the stadium got hot after the game? Because all of the fans left.
