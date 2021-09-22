@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
