@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
