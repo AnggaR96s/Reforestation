@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## Why do bees have sticky hair? Because they use honey combs!
