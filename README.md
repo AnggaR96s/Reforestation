@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
