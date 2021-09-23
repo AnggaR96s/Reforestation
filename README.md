@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
