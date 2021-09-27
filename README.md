@@ -1,1 +1,1 @@
-## R.I.P. boiled water. You will be mist.
+## The rotation of earth really makes my day.
