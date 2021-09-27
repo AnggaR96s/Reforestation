@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
