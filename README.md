@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## A termite walks into a bar and asks “Is the bar tender here?”
