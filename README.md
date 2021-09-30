@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
