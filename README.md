@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## I used to be a banker, but I lost interest.
