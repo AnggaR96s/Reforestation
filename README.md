@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## Velcro… What a rip-off.
