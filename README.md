@@ -1,1 +1,1 @@
-## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
