@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
