@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
