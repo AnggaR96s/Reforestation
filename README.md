@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
