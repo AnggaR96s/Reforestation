@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
