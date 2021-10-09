@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## What has ears but cannot hear? A field of corn.
