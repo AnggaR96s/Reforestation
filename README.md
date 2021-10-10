@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
