@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## Did you hear about the runner who was criticized? He just took it in stride
