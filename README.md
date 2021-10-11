@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## I cut my finger chopping cheese, but I think that I may have grater problems.
