@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
