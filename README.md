@@ -1,1 +1,1 @@
-## *Reversing the car* "Ah, this takes me back"
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
