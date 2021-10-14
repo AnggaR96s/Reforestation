@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## I just wrote a book on reverse psychology. Do not read it!
