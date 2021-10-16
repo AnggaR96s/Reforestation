@@ -1,1 +1,1 @@
-## I’m reading a book on the history of glue – can’t put it down.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
