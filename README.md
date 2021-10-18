@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
