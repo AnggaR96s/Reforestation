@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## Who is the coolest Doctor in the hospital? The hip Doctor!
