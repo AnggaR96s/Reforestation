@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## What did the ocean say to the beach? Thanks for all the sediment.
