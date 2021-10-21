@@ -1,1 +1,1 @@
-## What do you call a fake noodle? An impasta.
+## What do you call someone with no nose? Nobody knows.
