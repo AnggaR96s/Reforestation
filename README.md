@@ -1,1 +1,1 @@
-## Why is Peter Pan always flying? Because he Neverlands.
+## People are making apocalypse jokes like there’s no tomorrow.
