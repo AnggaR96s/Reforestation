@@ -1,1 +1,3 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
