@@ -1,1 +1,1 @@
-## What do you call someone with no nose? Nobody knows.
+## I used to be a banker, but I lost interest.
