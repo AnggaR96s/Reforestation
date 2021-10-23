@@ -1,1 +1,1 @@
-## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
