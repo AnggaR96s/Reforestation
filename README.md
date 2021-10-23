@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## Why are skeletons so calm? Because nothing gets under their skin.
