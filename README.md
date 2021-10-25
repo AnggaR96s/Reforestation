@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## The best time on a clock is 6:30--hands down.
