@@ -1,1 +1,1 @@
-## Whiteboards ... are remarkable.
+## How does a dyslexic poet write? Inverse.
