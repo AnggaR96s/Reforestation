@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## Dad, can you put my shoes on? I don't think they'll fit me.
