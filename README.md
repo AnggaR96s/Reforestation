@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
