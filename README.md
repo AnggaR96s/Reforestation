@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
