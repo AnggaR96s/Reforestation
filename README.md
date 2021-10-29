@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## What do birds give out on Halloween? Tweets.
