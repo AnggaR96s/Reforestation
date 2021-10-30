@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## Bad at golf? Join the club.
