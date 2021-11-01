@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
