@@ -1,1 +1,1 @@
-## Why did the man put his money in the freezer? He wanted cold hard cash!
+## "I'll call you later." Don't call me later, call me Dad.
