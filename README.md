@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## Why do birds fly south for the winter? Because it's too far to walk.
