@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## A cannibal is someone who is fed up with people.
