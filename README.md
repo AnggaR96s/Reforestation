@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## I got an A on my origami assignment when I turned my paper into my teacher
