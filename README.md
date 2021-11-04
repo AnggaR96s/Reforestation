@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
