@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## I used to be a banker, but I lost interest.
