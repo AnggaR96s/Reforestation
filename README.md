@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
