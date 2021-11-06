@@ -1,1 +1,1 @@
-## What did one wall say to the other wall? I'll meet you at the corner!
+## Why do birds fly south for the winter? Because it's too far to walk.
