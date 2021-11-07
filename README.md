@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
