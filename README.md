@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## I have kleptomania, but when it gets bad, I take something for it.
