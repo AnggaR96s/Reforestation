@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
