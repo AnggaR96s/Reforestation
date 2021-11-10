@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Why do fish live in salt water? Because pepper makes them sneeze!
