@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## What do you call a bee that lives in America? A USB.
