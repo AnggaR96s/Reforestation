@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## What biscuit does a short person like? Shortbread. 
