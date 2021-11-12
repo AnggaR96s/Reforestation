@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## Leather is great for sneaking around because it's made of hide.
