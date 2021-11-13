@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## What do you call a fly without wings? A walk.
