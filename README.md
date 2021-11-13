@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
