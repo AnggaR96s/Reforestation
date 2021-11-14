@@ -1,1 +1,2 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
