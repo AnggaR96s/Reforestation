@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Where do rabbits go after they get married? On a bunny-moon.
