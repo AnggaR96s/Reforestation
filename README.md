@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
