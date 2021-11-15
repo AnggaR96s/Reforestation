@@ -1,1 +1,1 @@
-## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
