@@ -1,1 +1,1 @@
-## Why was the broom late for the meeting? He overswept.
+## Don't tell secrets in corn fields. Too many ears around.
