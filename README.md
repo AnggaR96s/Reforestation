@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
