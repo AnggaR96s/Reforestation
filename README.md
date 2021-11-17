@@ -1,1 +1,1 @@
-## The shovel was a ground-breaking invention.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
