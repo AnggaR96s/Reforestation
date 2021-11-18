@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## What do you call a fish with no eyes? A fsh.
