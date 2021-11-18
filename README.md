@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## How are false teeth like stars? They come out at night!
