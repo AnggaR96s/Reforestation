@@ -1,1 +1,1 @@
-## The other day, my wife asked me to pass her lipstick but I accidentally passed her a glue stick. She still isn't talking to me.
+## You can't trust a ladder. It will always let you down
