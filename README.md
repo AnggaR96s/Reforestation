@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
