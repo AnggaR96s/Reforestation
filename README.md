@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
