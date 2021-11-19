@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
