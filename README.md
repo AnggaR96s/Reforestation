@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
