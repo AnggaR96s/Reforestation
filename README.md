@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## What do you do when your bunny gets wet? You get your hare dryer.
