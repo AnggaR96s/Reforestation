@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## What did the ocean say to the beach? Thanks for all the sediment.
