@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## Why don't sharks eat clowns?  Because they taste funny.
