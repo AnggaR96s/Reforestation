@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
