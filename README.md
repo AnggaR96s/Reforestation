@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
