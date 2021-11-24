@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
