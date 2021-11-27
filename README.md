@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## Recent survey revealed 6 out of 7 dwarf's aren't happy.
