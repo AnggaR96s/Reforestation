@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## I'll tell you what often gets over looked... garden fences.
