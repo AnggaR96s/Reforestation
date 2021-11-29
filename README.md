@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
