@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## A magician was driving down the street and then he turned into a driveway.
