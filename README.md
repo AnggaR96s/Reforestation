@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
