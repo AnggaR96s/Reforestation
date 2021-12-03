@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## "I'm sorry." "Hi sorry, I'm dad"
