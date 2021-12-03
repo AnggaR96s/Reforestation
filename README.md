@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## I saw a documentary on TV last night about how they put ships together.  It was rivetting.
