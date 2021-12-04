@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
