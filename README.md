@@ -1,1 +1,1 @@
-## I was going to get a brain transplant, but I changed my mind
+## I broke my finger at work today, on the other hand I'm completely fine.
