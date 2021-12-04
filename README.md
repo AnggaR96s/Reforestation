@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
