@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## How are false teeth like stars? They come out at night!
