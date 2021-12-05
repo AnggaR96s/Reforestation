@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## How does a French skeleton say hello? Bone-jour.
