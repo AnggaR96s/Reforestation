@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
