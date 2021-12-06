@@ -1,1 +1,1 @@
-## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
