@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
