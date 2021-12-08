@@ -1,1 +1,1 @@
-## Feeling pretty proud of myself. The Sesame Street puzzle I bought said 3-5 years, but I finished it in 18 months.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
