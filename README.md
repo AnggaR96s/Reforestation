@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
