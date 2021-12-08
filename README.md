@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## Where do sheep go to get their hair cut? The baa-baa shop.
