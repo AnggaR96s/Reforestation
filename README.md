@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## Where did you learn to make ice cream? Sunday school.
