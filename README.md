@@ -1,1 +1,1 @@
-## What did one snowman say to the other snow man? Do you smell carrot?
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
