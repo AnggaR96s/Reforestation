@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
