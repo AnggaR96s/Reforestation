@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## What do you call an old snowman? Water.
