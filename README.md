@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Why was the picture sent to prison? It was framed.
