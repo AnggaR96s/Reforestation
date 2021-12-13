@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
