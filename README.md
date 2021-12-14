@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
