@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## How do you steal a coat? You jacket.
