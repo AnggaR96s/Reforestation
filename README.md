@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
