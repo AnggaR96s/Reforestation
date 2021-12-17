@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
