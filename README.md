@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## This furniture store keeps emailing me, all I wanted was one night stand!
