@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## What did the shy pebble wish for? That she was a little boulder.
