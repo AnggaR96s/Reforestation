@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## What do you call a cow with two legs? Lean beef.
