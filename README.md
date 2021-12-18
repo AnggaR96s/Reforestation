@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Writing with a broken pencil is pointless.
