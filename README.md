@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## Remember, the best angle to approach a problem from is the "try" angle.
