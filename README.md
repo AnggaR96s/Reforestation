@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
