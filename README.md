@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## My boss told me to have a good day... so I went home.
