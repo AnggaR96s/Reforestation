@@ -1,1 +1,1 @@
-## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
