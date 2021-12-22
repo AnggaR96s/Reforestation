@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
