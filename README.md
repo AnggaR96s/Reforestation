@@ -1,1 +1,1 @@
-## I used to be addicted to the hokey pokey, but I turned myself around.
+## What time did the man go to the dentist? Tooth hurt-y.
