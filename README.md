@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## I considered building the patio by myself. But I didn't have the stones.
