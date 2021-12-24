@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## How many tickles does it take to tickle an octopus? Ten-tickles!
