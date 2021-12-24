@@ -1,1 +1,1 @@
-## A farmer had 297 cows, when he rounded them up, he found he had 300
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
