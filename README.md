@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## What musical instrument is found in the bathroom? A tuba toothpaste.
