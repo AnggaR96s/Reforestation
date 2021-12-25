@@ -1,1 +1,1 @@
-## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+## Ever wondered why bees hum? It's because they don't know the words.
