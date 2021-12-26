@@ -1,1 +1,1 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## Some people eat light bulbs. They say it's a nice light snack.
