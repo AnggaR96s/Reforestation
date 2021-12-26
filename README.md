@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
