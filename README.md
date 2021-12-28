@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
