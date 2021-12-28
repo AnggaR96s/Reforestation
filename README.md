@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
