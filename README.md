@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
