@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## "I'll call you later." Don't call me later, call me Dad.
