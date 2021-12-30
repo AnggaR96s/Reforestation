@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## What do birds give out on Halloween? Tweets.
