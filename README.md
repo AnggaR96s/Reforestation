@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
