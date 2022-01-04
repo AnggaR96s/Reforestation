@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## Two silk worms had a race. They ended up in a tie.
