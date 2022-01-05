@@ -1,1 +1,1 @@
-## What do you call your friend who stands in a hole? Phil.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
