@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
