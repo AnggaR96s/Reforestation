@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## Whoever invented the knock-knock joke should get a no bell prize.
