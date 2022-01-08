@@ -1,1 +1,2 @@
-## What do you call corn that joins the army? Kernel.
+## Where do cats write notes?
+## Scratch Paper!
