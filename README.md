@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## Geology rocks, but Geography is where it's at!
