@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## A termite walks into a bar and asks “Is the bar tender here?”
