@@ -1,1 +1,2 @@
-## What did the 0 say to the 8? Nice belt.
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
