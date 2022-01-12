@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## I used to be a banker, but I lost interest.
