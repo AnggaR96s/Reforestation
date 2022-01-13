@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## What do you call an alligator in a vest? An in-vest-igator!
