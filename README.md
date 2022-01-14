@@ -1,1 +1,1 @@
-## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
+## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
