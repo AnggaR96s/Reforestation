@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## What did the shy pebble wish for? That she was a little boulder.
