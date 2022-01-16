@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## To the person who stole my anti-depressant pills: I hope you're happy now.
