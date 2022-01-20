@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## I couldn't figure out how the seat belt worked. Then it just clicked.
