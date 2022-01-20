@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
