@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## I’m on a whiskey diet. I’ve lost three days already.
