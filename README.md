@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
