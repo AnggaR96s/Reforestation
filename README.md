@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## What did one nut say as he chased another nut?  I'm a cashew!
