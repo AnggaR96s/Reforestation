@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
