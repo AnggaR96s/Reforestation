@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
