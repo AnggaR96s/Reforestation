@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
