@@ -1,1 +1,1 @@
-## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
