@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
