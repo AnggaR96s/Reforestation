@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
