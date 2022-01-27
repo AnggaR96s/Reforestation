@@ -1,1 +1,1 @@
-## Why do birds fly south for the winter? Because it's too far to walk.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
