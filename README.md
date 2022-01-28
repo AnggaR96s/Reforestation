@@ -1,1 +1,1 @@
-## Past, present, and future walked into a bar.... It was tense.
+## Without geometry life is pointless.
