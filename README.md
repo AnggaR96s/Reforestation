@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## Why did the barber win the race? He took a short cut.
