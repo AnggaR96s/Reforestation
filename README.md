@@ -1,1 +1,2 @@
-## Mountains aren't just funny, they are hill areas
+## What is red and smells like blue paint?
+## Red paint!
