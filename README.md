@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
