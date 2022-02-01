@@ -1,1 +1,1 @@
-## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
