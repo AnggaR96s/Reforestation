@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## Yesterday I confused the words "jacuzzi" and "yakuza". Now I'm in hot water with the Japanese mafia.
