@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## Did you hear about the bread factory burning down? They say the business is toast.
