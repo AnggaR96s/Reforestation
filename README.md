@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
