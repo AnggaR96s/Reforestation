@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## A magician was driving down the street and then he turned into a driveway.
