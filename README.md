@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
