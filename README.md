@@ -1,1 +1,1 @@
-## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
