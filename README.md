@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
