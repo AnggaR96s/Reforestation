@@ -1,2 +1,1 @@
-## Cosmetic surgery used to be such a taboo subject.
-## Now you can talk about Botox and nobody raises an eyebrow.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
