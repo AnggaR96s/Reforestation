@@ -1,1 +1,2 @@
-## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
