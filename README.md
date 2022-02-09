@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## I used to work in a shoe recycling shop. It was sole destroying.
