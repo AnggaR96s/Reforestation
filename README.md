@@ -1,1 +1,1 @@
-## I used to work for an origami company but they folded.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
