@@ -1,1 +1,1 @@
-## Why are fish easy to weigh? Because they have their own scales.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
