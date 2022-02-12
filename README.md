@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
