@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
