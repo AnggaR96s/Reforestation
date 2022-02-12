@@ -1,1 +1,2 @@
-## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
+## What's large, grey, and doesn't matter?
+## An irrelephant.
