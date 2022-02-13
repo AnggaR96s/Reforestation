@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## How much does a hipster weigh? An instagram.
