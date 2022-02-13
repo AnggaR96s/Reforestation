@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## What does an angry pepper do? It gets jalapeño face.
