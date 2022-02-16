@@ -1,1 +1,1 @@
-## Milk is also the fastest liquid on earth – its pasteurized before you even see it
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
