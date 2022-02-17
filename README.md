@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
