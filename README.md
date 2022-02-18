@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
