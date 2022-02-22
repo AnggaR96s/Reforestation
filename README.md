@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
