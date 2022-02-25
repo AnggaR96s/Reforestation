@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Why are mummys scared of vacation? They're afraid to unwind.
