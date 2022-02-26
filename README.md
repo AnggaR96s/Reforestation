@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## What do you call a sheep with no legs? A cloud.
