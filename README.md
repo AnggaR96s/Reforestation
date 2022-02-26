@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## This is my step ladder. I never knew my real ladder.
