@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
