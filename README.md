@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## Who is the coolest Doctor in the hospital? The hip Doctor!
