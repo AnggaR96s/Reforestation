@@ -1,1 +1,1 @@
-## My New Years resolution is to stop leaving things so late.
+## Why did the m&m go to school? Because it wanted to be a Smartie!
