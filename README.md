@@ -1,1 +1,1 @@
-## A bartender broke up with her boyfriend, but he kept asking her for another shot.
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
