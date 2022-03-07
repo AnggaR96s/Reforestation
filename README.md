@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
