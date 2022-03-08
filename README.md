@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## How many tickles does it take to tickle an octopus? Ten-tickles!
