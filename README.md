@@ -1,1 +1,1 @@
-## Whiteboards ... are remarkable.
+## Archaeology really is a career in ruins.
