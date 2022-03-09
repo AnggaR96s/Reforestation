@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
