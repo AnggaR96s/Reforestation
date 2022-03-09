@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## Where do rabbits go after they get married? On a bunny-moon.
