@@ -1,1 +1,1 @@
-## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
