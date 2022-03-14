@@ -1,1 +1,1 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
