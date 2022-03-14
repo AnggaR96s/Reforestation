@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
