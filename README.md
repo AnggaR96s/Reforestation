@@ -1,1 +1,2 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
