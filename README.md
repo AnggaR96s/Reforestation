@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## Why was ten scared of seven? Because seven ate nine.
