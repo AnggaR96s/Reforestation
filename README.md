@@ -1,1 +1,3 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
