@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## What kind of dinosaur loves to sleep? A stega-snore-us.
