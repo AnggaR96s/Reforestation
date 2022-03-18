@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
