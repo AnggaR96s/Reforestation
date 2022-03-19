@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## Mountains aren't just funny, they are hill areas
