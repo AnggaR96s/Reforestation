@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
