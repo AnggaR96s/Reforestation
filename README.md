@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
