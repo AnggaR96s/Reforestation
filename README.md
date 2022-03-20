@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## I fear for the calendar, its days are numbered.
