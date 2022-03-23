@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## What did the ocean say to the shore? Nothing, it just waved.
