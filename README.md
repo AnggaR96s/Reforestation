@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## What did the pirate say on his 80th birthday? Aye Matey!
