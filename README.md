@@ -1,1 +1,1 @@
-## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
+## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
