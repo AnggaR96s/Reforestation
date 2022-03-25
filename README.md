@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## Why are mummys scared of vacation? They're afraid to unwind.
