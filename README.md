@@ -1,1 +1,1 @@
-## What did one wall say to the other wall? I'll meet you at the corner!
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
