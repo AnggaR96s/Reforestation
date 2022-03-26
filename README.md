@@ -1,1 +1,1 @@
-## What is a witch's favorite subject in school? Spelling!
+## What did one wall say to the other wall? I'll meet you at the corner!
