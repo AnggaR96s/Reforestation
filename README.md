@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## Geology rocks, but Geography is where it's at!
