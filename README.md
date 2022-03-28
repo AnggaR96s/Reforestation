@@ -1,1 +1,1 @@
-## Why are skeletons so calm? Because nothing gets under their skin.
+## Where do young cows eat lunch? In the calf-ateria.
