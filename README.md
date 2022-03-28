@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
