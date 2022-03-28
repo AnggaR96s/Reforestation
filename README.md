@@ -1,1 +1,1 @@
-## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+## Why are skeletons so calm? Because nothing gets under their skin.
