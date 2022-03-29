@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
