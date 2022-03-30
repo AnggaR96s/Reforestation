@@ -1,1 +1,1 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
