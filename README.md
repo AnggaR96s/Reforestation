@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## Why can't eggs have love? They will break up too soon.
