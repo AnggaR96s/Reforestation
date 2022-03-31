@@ -1,2 +1,1 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
