@@ -1,1 +1,2 @@
-## My sister bet me $15 that I couldn't build a car out of spaghetti. You should have seen the look on her face as I drove pasta.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
