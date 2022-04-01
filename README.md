@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
