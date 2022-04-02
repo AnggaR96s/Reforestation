@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
