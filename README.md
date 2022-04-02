@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
