@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## Where do bees go to the bathroom?  The BP station.
