@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## I wouldn't buy anything with velcro. It's a total rip-off.
