@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## A magician was driving down the street and then he turned into a driveway.
