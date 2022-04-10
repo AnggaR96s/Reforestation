@@ -1,1 +1,1 @@
-## Did you hear about the cheese who saved the world? It was Legend-dairy!
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
