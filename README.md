@@ -1,1 +1,1 @@
-## "What time is it?" I don't know... it keeps changing.
+## Why are fish easy to weigh? Because they have their own scales.
