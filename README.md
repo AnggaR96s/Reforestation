@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
