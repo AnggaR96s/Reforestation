@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
