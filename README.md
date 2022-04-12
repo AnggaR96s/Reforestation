@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
