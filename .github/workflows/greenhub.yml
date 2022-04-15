@@ -15,6 +15,10 @@ jobs:
          persist-credentials: false
          fetch-depth: 0
 
+      - name: run safe dir
+        run: |
+            git config --global --add safe.directory /github/workspace
+
       - name: Modify README.md
         run: |
           cat > README.md
