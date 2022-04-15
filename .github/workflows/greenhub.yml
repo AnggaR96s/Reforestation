@@ -15,10 +15,6 @@ jobs:
          persist-credentials: false
          fetch-depth: 0
 
-      - name: run safe dir
-        run: |
-            git config --global --add safe.directory /github/workspace
-
       - name: Modify README.md
         run: |
           cat > README.md
@@ -30,6 +26,7 @@ jobs:
           ${{ secrets.cr }}
           git config --local user.email "angga@linuxmail.org"
           git config --local user.name "Angga"
+          git config --global --add safe.directory /github/workspace
           git add -A
           git commit -s -am "$(curl -s http://whatthecommit.com/index.txt)"
           
