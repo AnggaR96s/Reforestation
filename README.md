@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## I have kleptomania, but when it gets bad, I take something for it.
