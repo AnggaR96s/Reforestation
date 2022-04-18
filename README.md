@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
