@@ -1,1 +1,2 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
