@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## I cut my finger chopping cheese, but I think that I may have grater problems.
