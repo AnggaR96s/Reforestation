@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## What animal is always at a game of cricket? A bat.
