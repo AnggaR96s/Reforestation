@@ -1,1 +1,1 @@
-## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
