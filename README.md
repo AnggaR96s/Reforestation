@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
