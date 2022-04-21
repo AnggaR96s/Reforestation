@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
