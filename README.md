@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## Did you know that ghosts call their true love their ghoul-friend?
