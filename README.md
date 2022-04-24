@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
