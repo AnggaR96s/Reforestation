@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
