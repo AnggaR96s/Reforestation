@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## Why are mummys scared of vacation? They're afraid to unwind.
