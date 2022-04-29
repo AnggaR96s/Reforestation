@@ -1,1 +1,2 @@
-## How does Darth Vader like his toast? On the dark side.
+## Where do cats write notes?
+## Scratch Paper!
