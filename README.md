@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## How does the moon cut his hair? Eclipse it.
