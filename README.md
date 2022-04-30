@@ -1,1 +1,1 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
