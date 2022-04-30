@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
