@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## People are making apocalypse jokes like there’s no tomorrow.
