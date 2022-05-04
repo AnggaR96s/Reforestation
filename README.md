@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## Where did you learn to make ice cream? Sunday school.
