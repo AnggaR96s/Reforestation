@@ -1,2 +1,1 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## Want to hear a joke about construction? Nah, I'm still working on it.
