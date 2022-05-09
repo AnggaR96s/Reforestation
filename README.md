@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## Whoever invented the knock-knock joke should get a no bell prize.
