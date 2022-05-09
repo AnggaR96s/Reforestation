@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## What do you call a troublesome Canadian high schooler? A poutine.
