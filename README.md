@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## Remember, the best angle to approach a problem from is the "try" angle.
