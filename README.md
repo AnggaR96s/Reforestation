@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## What is the hardest part about sky diving? The ground.
