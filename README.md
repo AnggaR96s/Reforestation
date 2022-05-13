@@ -1,1 +1,1 @@
-## My New Years resolution is to stop leaving things so late.
+## I’m on a whiskey diet. I’ve lost three days already.
