@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
