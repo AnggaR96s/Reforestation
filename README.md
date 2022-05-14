@@ -1,1 +1,1 @@
-## I couldn't figure out how the seat belt worked. Then it just clicked.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
