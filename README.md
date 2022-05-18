@@ -1,1 +1,1 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
