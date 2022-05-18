@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
