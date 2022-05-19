@@ -1,1 +1,1 @@
-## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
