@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## My cat was just sick on the carpet, I don’t think it’s feline well.
