@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
