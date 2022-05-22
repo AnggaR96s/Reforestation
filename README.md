@@ -1,1 +1,3 @@
-## As I suspected, someone has been adding soil to my garden. The plot thickens.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
