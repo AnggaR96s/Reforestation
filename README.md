@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## I met this girl on a dating site and, I don't know, we just clicked.
