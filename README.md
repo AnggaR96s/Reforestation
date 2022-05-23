@@ -1,3 +1,2 @@
-## What's the worst part about being a cross-eyed teacher?
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
 ## 
-## They can't control their pupils.
