@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
