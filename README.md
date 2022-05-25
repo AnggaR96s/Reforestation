@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## Why are pirates called pirates? Because they arrr!
