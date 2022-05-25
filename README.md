@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
