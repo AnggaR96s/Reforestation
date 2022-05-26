@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## You can't trust a ladder. It will always let you down
