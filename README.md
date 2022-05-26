@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## Where do you learn to make banana splits? At sundae school.
