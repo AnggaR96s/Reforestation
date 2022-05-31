@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## I decided to sell my Hoover… well it was just collecting dust.
