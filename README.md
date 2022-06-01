@@ -1,1 +1,1 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
