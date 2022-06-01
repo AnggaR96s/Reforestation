@@ -1,1 +1,1 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
