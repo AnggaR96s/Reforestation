@@ -1,1 +1,1 @@
-## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
