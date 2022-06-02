@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
