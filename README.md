@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
