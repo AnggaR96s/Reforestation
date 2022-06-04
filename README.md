@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## What did the big flower say to the littler flower? Hi, bud!
