@@ -1,1 +1,1 @@
-## My New Years resolution is to stop leaving things so late.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
