@@ -1,1 +1,1 @@
-## Can I watch the TV? Dad: Yes, but don’t turn it on.
+## How does the moon cut his hair? Eclipse it.
