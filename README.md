@@ -1,1 +1,1 @@
-## What do you call a fly without wings? A walk.
+## Two guys walked into a bar, the third one ducked.
