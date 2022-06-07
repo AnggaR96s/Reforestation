@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
