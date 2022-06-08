@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
