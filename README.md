@@ -1,1 +1,1 @@
-## How do the trees get on the internet? They log on.
+## What do birds give out on Halloween? Tweets.
