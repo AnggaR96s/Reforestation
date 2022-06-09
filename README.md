@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
