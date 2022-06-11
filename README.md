@@ -1,1 +1,1 @@
-## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
