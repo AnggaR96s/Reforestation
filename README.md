@@ -1,1 +1,2 @@
-## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
