@@ -1,2 +1,1 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## An apple a day keeps the bullies away. If you throw it hard enough.
