@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## I used to be addicted to the hokey pokey, but I turned myself around.
