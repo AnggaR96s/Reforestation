@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
