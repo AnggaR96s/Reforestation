@@ -1,1 +1,1 @@
-## I tried to write a chemistry joke, but could never get a reaction.
+## I decided to sell my Hoover… well it was just collecting dust.
