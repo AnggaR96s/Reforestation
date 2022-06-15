@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## I broke my finger at work today, on the other hand I'm completely fine.
