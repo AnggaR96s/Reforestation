@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## Did you hear about the runner who was criticized? He just took it in stride
