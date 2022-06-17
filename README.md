@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## Why don't sharks eat clowns?  Because they taste funny.
