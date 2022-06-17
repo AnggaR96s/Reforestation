@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
