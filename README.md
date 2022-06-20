@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## What did one wall say to the other wall? I'll meet you at the corner!
