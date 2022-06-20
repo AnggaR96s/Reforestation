@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
