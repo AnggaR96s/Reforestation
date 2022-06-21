@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
