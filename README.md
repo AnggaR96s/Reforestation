@@ -1,1 +1,2 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
