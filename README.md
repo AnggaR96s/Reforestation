@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## I ordered a chicken and an egg from Amazon. I'll let you know.
