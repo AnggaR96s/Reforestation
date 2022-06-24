@@ -1,1 +1,2 @@
-## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
