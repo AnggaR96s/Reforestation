@@ -1,1 +1,1 @@
-## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
