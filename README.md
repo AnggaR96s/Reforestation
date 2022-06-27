@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
