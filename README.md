@@ -1,1 +1,2 @@
-## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
