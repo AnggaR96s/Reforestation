@@ -1,1 +1,1 @@
-## I was going to get a brain transplant, but I changed my mind
+## A woman is on trial for beating her husband to death with his guitar collection. Judge says, ‘First offender?’ She says, ‘No, first a Gibson! Then a Fender!’
