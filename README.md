@@ -1,2 +1,3 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
