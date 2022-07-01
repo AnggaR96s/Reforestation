@@ -1,1 +1,1 @@
-## "What time is it?" I don't know... it keeps changing.
+## Why are mummys scared of vacation? They're afraid to unwind.
