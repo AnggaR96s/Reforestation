@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
