@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
