@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
