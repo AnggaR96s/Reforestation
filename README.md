@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## Coffee has a tough time at my house, every morning it gets mugged.
