@@ -1,1 +1,1 @@
-## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
