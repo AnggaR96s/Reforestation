@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
