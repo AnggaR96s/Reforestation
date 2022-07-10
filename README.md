@@ -1,1 +1,1 @@
-## What did Michael Jackson name his denim store?    Billy Jeans!
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
