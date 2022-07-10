@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## I considered building the patio by myself. But I didn't have the stones.
