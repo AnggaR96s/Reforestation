@@ -1,1 +1,1 @@
-## If you walk into a forest and cut down a tree, but the tree doesn't understand why you cut it down, do you think it's stumped?
+## Doctor you've got to help me, I'm addicted to Twitter. Doctor: I don't follow you.
