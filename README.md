@@ -1,1 +1,3 @@
-## Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
+## Mahatma Gandhi, as you know, walked barefoot most of the time, which produced an impressive set of calluses on his feet. 
+## He also ate very little, which made him rather frail and with his odd diet, he suffered from bad breath. 
+## This made him a super calloused fragile mystic hexed by halitosis.
