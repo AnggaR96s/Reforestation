@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## Why did the melons plan a big wedding? Because they cantaloupe!
