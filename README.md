@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## People who don't eat gluten are really going against the grain.
