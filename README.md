@@ -1,1 +1,1 @@
-## What do you call a pig with three eyes? Piiig
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
