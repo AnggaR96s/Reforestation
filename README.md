@@ -1,1 +1,1 @@
-## I went to a book store and asked the saleswoman where the Self Help section was, she said if she told me it would defeat the purpose.
+## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
