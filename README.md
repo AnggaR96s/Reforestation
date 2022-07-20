@@ -1,1 +1,1 @@
-## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
