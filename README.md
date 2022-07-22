@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## Why is the ocean always blue? Because the shore never waves back.
