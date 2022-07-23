@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
