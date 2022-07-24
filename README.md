@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
