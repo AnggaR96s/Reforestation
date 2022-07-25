@@ -1,1 +1,1 @@
-## Sore throats are a pain in the neck!
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
