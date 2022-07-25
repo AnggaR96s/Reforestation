@@ -1,1 +1,2 @@
-## How does a French skeleton say hello? Bone-jour.
+## What's large, grey, and doesn't matter?
+## An irrelephant.
