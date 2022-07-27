@@ -1,1 +1,2 @@
-## A woman is on trial for beating her husband to death with his guitar collection. Judge says, ‘First offender?’ She says, ‘No, first a Gibson! Then a Fender!’
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
