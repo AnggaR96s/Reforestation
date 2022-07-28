@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Where do hamburgers go to dance? The meat-ball.
