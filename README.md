@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Why didn’t the orange win the race? It ran out of juice.
