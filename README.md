@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## I made a belt out of watches once... It was a waist of time.
