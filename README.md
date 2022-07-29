@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## Why are ghosts bad liars? Because you can see right through them!
