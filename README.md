@@ -1,1 +1,2 @@
-## Did you know crocodiles could grow up to 15 feet? But most just have 4.
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
