@@ -1,1 +1,1 @@
-## So, I heard this pun about cows, but it’s kinda offensive so I won’t say it. I don’t want there to be any beef between us. 
+## I broke my finger at work today, on the other hand I'm completely fine.
