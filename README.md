@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
