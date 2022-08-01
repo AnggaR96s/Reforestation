@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## How many South Americans does it take to change a lightbulb? A Brazilian
