@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## What do you call a boy who stopped digging holes? Douglas.
