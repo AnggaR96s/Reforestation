@@ -1,1 +1,2 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
