@@ -1,1 +1,1 @@
-## Why are ghosts bad liars? Because you can see right through them!
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
