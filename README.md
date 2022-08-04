@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
