@@ -1,1 +1,1 @@
-## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
