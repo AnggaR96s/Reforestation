@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
