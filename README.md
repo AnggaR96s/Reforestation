@@ -1,1 +1,1 @@
-## I used to work for a soft drink can crusher. It was soda pressing.
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
