@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## What do I look like? A JOKE MACHINE!?
