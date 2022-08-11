@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
