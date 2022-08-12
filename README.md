@@ -1,1 +1,1 @@
-## What do you call a group of killer whales playing instruments? An Orca-stra.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
