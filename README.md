@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## People saying 'boo! to their friends has risen by 85% in the last year.... That's a frightening statistic.
