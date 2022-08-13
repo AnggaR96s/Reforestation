@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## Recent survey revealed 6 out of 7 dwarf's aren't happy.
