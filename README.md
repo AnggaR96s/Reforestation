@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
