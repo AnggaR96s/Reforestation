@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
