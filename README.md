@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## I ate a clock yesterday. It was so time consuming.
