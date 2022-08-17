@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## Some people eat light bulbs. They say it's a nice light snack.
