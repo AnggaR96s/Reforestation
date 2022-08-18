@@ -1,1 +1,3 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## How many seconds are in a year?
+## 12.
+## January 2nd, February 2nd, March 2nd, April 2nd.... etc
