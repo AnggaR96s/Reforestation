@@ -1,3 +1,1 @@
-## How many seconds are in a year?
-## 12.
-## January 2nd, February 2nd, March 2nd, April 2nd.... etc
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
