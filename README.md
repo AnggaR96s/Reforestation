@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
