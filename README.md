@@ -1,1 +1,1 @@
-## Where does Napoleon keep his armies? In his sleevies.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
