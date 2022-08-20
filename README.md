@@ -1,1 +1,3 @@
-## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
+## Doctor: Do you want to hear the good news or the bad news?
+## Patient: Good news please.
+## Doctor: we're naming a disease after you.
