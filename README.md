@@ -1,1 +1,2 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## What did the hat say to the scarf?
+## You can hang around. I'll just go on ahead.
