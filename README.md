@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## Why did the scarecrow win an award? Because he was outstanding in his field.
