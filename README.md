@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
