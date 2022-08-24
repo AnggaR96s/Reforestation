@@ -1,1 +1,7 @@
-## My sister bet me $15 that I couldn't build a car out of spaghetti. You should have seen the look on her face as I drove pasta.
+## Wife: Honey I’m pregnant.
+## 
+## Me: Well…. what do we do now?
+## 
+## Wife: Well, I guess we should go to a baby doctor.
+## 
+## Me: Hm.. I think I’d be a lot more comfortable going to an adult doctor.
