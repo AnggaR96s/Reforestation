@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## What kind of dinosaur loves to sleep? A stega-snore-us.
