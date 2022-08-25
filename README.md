@@ -1,1 +1,2 @@
-## What did Michael Jackson name his denim store?    Billy Jeans!
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
