@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## What time did the man go to the dentist? Tooth hurt-y.
