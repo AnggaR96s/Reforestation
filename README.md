@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## When is a door not a door? When it's ajar.
