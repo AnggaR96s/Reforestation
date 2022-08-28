@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
