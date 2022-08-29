@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## Why do crabs never give to charity? Because they’re shellfish.
