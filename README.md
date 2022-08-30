@@ -1,1 +1,1 @@
-## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+## Whoever invented the knock-knock joke should get a no bell prize.
