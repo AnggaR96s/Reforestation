@@ -1,1 +1,1 @@
-## Did you hear about the runner who was criticized? He just took it in stride
+## There's not really any training for garbagemen. They just pick things up as they go.
