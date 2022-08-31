@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
