@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
