@@ -1,2 +1,2 @@
-## What is red and smells like blue paint?
-## Red paint!
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
