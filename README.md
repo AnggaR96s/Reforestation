@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## Can I watch the TV? Dad: Yes, but don’t turn it on.
