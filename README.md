@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
