@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
