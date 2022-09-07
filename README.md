@@ -1,1 +1,1 @@
-## I saw an ad in a shop window, "Television for sale, $1, volume stuck on full", I thought, "I can't turn that down".
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
