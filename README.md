@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
