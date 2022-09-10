@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## Have you heard of the band 1023MB? They haven't got a gig yet.
