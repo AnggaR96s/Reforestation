@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## What’s brown and sounds like a bell? Dung!
