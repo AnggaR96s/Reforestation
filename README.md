@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
