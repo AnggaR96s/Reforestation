@@ -1,1 +1,1 @@
-## My boss told me that he was going to fire the person with the worst posture. I have a hunch, it might be me.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
