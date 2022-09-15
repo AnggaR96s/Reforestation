@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## I used to be a banker, but I lost interest.
