@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## Why didn’t the skeleton cross the road? Because he had no guts.
