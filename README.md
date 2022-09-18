@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## What kind of magic do cows believe in? MOODOO.
