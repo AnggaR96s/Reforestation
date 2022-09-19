@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## Want to hear my pizza joke? Never mind, it's too cheesy.
