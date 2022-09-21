@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
