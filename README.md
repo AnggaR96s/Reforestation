@@ -1,1 +1,1 @@
-## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
