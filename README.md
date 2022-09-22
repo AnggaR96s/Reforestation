@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
