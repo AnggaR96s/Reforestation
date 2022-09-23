@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## Man, I really love my furniture... me and my recliner go way back.
