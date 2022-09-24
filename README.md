@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## What do you call a boy who stopped digging holes? Douglas.
