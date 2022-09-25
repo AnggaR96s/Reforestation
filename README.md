@@ -1,1 +1,1 @@
-## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
