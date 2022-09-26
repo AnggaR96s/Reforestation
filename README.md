@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
