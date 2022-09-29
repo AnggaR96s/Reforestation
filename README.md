@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## I used to be addicted to soap, but I'm clean now.
