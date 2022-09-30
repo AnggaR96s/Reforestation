@@ -1,1 +1,1 @@
-## It was raining cats and dogs the other day. I almost stepped in a poodle.
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
