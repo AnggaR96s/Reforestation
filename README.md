@@ -1,1 +1,1 @@
-## I used to be addicted to soap, but I'm clean now.
+## What has ears but cannot hear? A field of corn.
