@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
