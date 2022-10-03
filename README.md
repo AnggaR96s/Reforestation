@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
