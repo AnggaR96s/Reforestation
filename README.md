@@ -1,1 +1,1 @@
-## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
