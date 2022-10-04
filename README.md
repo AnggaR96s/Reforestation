@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
