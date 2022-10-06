@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
