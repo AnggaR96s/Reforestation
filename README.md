@@ -1,1 +1,1 @@
-## What do you call a beehive without the b's? An eehive.
+## What happens to a frog's car when it breaks down? It gets toad.
