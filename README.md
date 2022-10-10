@@ -1,1 +1,1 @@
-## What type of music do balloons hate? Pop music!
+## What does an angry pepper do? It gets jalapeño face.
