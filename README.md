@@ -1,2 +1,1 @@
-## I finally bought the limited edition Thesaurus that I've always wanted. When I opened it, all the pages were blank.
-## I have no words to describe how angry I am.
+## I wouldn't buy anything with velcro. It's a total rip-off.
