@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## Dad, can you put my shoes on? I don't think they'll fit me.
