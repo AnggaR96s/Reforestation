@@ -1,1 +1,2 @@
-## What’s E.T. short for? He’s only got little legs.
+## What is red and smells like blue paint?
+## Red paint!
