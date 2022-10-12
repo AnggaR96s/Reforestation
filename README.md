@@ -1,1 +1,1 @@
-## "What time is it?" I don't know... it keeps changing.
+## What’s E.T. short for? He’s only got little legs.
