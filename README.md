@@ -1,1 +1,1 @@
-## Dad, can you put my shoes on? I don't think they'll fit me.
+## What do you call a bear with no teeth? A gummy bear!
