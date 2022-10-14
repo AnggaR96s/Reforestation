@@ -1,1 +1,1 @@
-## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
+## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
