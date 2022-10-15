@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
