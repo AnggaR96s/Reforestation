@@ -1,1 +1,1 @@
-## Without geometry life is pointless.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
