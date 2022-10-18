@@ -1,1 +1,1 @@
-## What biscuit does a short person like? Shortbread. 
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
