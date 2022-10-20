@@ -1,1 +1,1 @@
-## What do birds give out on Halloween? Tweets.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
