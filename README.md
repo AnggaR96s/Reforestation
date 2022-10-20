@@ -1,1 +1,1 @@
-## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
