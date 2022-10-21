@@ -1,1 +1,3 @@
-## Why do ducks make great detectives? They always quack the case.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
