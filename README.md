@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
