@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## What kind of magic do cows believe in? MOODOO.
