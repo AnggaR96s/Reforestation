@@ -1,1 +1,1 @@
-## What kind of magic do cows believe in? MOODOO.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
