@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## Did you know crocodiles could grow up to 15 feet? But most just have 4.
