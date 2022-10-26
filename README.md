@@ -1,1 +1,1 @@
-## What do you get when you cross a bee and a sheep? A bah-humbug.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
