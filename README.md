@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
