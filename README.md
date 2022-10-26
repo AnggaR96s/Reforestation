@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
