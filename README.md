@@ -1,1 +1,1 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
