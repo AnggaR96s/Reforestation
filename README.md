@@ -1,1 +1,1 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
