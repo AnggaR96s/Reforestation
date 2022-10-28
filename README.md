@@ -1,3 +1,1 @@
-## How many seconds are in a year?
-## 12.
-## January 2nd, February 2nd, March 2nd, April 2nd.... etc
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
