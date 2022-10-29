@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
