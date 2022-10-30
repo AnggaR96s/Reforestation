@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
