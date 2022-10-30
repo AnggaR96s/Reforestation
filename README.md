@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
