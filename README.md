@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## How come a man driving a train got struck by lightning? He was a good conductor.
