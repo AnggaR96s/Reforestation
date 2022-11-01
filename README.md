@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## What do you call a boy who stopped digging holes? Douglas.
