@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## Why was the robot angry? Because someone kept pressing his buttons!
