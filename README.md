@@ -1,1 +1,1 @@
-## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
