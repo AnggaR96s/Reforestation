@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
