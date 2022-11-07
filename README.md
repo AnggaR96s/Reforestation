@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
