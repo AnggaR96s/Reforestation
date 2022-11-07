@@ -1,1 +1,1 @@
-## I was thinking about moving to Moscow but there is no point Russian into things.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
