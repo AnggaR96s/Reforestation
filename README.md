@@ -1,1 +1,3 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
