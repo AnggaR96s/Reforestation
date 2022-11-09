@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## It was raining cats and dogs the other day. I almost stepped in a poodle.
