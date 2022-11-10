@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
