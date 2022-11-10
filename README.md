@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
