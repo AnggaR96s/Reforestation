@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
