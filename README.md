@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## I was in an 80's band called the prevention. We were better than the cure.
