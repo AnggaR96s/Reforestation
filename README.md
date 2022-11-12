@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
