@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Why do choirs keep buckets handy? So they can carry their tune
