@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## Just watched a documentary about beavers… It was the best damn program I’ve ever seen.
