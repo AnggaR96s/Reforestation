@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
