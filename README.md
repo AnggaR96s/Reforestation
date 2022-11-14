@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## Why are fish so smart? Because they live in schools!
