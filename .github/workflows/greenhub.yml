@@ -28,7 +28,7 @@ jobs:
           git config --local user.name "Angga"
           git config --global --add safe.directory /github/workspace
           git add -A
-          git commit -s -am "$(curl -s http://whatthecommit.com/index.txt)"
+          git commit -s -am "$(curl -s https://whatthecommit.com/index.txt)"
           
       - name: GitHub Push
         uses: ad-m/github-push-action@master
