@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## Who did the wizard marry? His ghoul-friend
