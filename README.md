@@ -1,1 +1,1 @@
-## Two guys walked into a bar, the third one ducked.
+## When do doctors get angry? When they run out of patients.
