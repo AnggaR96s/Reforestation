@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## Why are mummys scared of vacation? They're afraid to unwind.
