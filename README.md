@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
