@@ -1,1 +1,1 @@
-## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
