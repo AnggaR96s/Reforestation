@@ -1,1 +1,1 @@
-## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
