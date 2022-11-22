@@ -1,1 +1,1 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
