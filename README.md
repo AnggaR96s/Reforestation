@@ -1,1 +1,1 @@
-## What kind of music do mummy's like? Rap
+## What kind of bagel can fly? A plain bagel.
