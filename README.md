@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## What did the digital clock say to the grandfather clock? Look, no hands!
