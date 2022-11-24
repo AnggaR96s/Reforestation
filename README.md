@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
