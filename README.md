@@ -1,1 +1,1 @@
-## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
