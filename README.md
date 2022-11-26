@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## How do locomotives know where they're going? Lots of training
