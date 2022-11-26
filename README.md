@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## Why did the chicken get a penalty? For fowl play.
