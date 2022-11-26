@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## What's blue and not very heavy?  Light blue.
