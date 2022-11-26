@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## A magician was driving down the street and then he turned into a driveway.
