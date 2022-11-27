@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
