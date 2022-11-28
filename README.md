@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## I had a dream that I was a muffler last night. I woke up exhausted!
