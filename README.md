@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
