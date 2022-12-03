@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## Why did the chicken get a penalty? For fowl play.
