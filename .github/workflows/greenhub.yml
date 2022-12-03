@@ -28,7 +28,7 @@ jobs:
           git config --local user.name "Angga"
           git config --global --add safe.directory /github/workspace
           git add -A
-          git commit -s -am "$(curl -s https://commitment.herokuapp.com/txt)"
+          git commit -s -am "$(curl -s https://raw.githubusercontent.com/ngerakines/commitment/main/commit_messages.txt | shuf -n 1)"
           
       - name: GitHub Push
         uses: ad-m/github-push-action@master
