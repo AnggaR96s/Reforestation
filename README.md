@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## What is a centipedes's favorite Beatle song?  I want to hold your hand, hand, hand, hand...
