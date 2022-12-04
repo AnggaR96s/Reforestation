@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
