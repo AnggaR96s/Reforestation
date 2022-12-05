@@ -1,1 +1,1 @@
-## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
