@@ -1,1 +1,1 @@
-## Sometimes I tuck my knees into my chest and lean forward.  That’s just how I roll.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
