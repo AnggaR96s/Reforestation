@@ -1,1 +1,3 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
