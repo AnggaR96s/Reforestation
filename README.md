@@ -1,1 +1,1 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
