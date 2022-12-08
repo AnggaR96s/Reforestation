@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
