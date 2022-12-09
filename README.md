@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
