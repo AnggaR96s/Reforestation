@@ -1,1 +1,1 @@
-## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
