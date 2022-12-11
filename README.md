@@ -1,1 +1,1 @@
-## What do you call an eagle who can play the piano? Talonted!
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
