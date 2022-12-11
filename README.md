@@ -1,1 +1,1 @@
-## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
