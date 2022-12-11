@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
