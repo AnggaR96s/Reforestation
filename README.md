@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## Ever wondered why bees hum? It's because they don't know the words.
