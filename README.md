@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
