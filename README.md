@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## It doesn't matter how much you push the envelope. It will still be stationary.
