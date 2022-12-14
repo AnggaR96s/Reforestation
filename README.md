@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
