@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## What has ears but cannot hear? A field of corn.
