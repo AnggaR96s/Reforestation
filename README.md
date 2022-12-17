@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Why do crabs never give to charity? Because they’re shellfish.
