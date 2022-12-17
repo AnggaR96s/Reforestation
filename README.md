@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## What time did the man go to the dentist? Tooth hurt-y.
