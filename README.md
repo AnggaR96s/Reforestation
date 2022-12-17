@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
