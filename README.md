@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## Why was it called the dark ages? Because of all the knights. 
