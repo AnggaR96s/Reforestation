@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## Why do cows wear bells? Because their horns don't work.
