@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## What is a witch's favorite subject in school? Spelling!
