@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
