@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## Why did the man put his money in the freezer? He wanted cold hard cash!
