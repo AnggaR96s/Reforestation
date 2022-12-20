@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
