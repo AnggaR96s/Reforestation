@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
