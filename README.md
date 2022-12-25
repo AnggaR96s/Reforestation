@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## How come the stadium got hot after the game? Because all of the fans left.
