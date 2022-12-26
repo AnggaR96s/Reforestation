@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## What do you get when you cross a snowman with a vampire? Frostbite.
