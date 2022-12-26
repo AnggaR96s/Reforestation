@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## Why was ten scared of seven? Because seven ate nine.
