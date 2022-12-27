@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
