@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## What has ears but cannot hear? A field of corn.
