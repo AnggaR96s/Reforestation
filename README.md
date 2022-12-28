@@ -1,1 +1,1 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
