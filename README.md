@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## Why is the ocean always blue? Because the shore never waves back.
