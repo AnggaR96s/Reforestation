@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
