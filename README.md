@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
