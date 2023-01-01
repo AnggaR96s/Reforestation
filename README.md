@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## What do you call a boy who stopped digging holes? Douglas.
