@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
