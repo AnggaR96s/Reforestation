@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-## 
-## They can't control their pupils.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
