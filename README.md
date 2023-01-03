@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## What do you call a droid that takes the long way around? R2 detour.
