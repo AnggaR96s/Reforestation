@@ -1,1 +1,3 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
