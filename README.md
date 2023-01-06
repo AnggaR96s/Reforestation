@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
