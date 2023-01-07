@@ -1,1 +1,1 @@
-## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
