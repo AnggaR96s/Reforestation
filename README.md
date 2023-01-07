@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## I decided to sell my Hoover… well it was just collecting dust.
