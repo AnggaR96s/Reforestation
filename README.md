@@ -1,1 +1,1 @@
-## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
