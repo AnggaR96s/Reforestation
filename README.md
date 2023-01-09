@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## I had a dream that I was a muffler last night. I woke up exhausted!
