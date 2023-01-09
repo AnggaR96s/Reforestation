@@ -1,1 +1,1 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
