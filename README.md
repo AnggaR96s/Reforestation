@@ -1,1 +1,1 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## What do you call a cow with no legs? Ground beef.
