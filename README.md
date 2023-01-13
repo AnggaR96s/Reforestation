@@ -1,1 +1,1 @@
-## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
