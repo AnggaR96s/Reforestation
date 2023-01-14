@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
