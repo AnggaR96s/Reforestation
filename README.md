@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## Why didn’t the orange win the race? It ran out of juice.
