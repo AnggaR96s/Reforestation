@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## I used to work in a shoe recycling shop. It was sole destroying.
