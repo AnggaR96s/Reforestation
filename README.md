@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## What does a pirate pay for his corn? A buccaneer!
