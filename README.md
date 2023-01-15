@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
