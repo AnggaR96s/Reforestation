@@ -1,1 +1,1 @@
-## Dad, can you put my shoes on? I don't think they'll fit me.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
