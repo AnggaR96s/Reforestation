@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## Sometimes I tuck my knees into my chest and lean forward.  That’s just how I roll.
