@@ -1,1 +1,1 @@
-## Do I enjoy making courthouse puns? Guilty
+## Without geometry life is pointless.
