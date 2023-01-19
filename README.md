@@ -1,1 +1,3 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## How many seconds are in a year?
+## 12.
+## January 2nd, February 2nd, March 2nd, April 2nd.... etc
