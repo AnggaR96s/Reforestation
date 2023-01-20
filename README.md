@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
