@@ -1,1 +1,1 @@
-## What lies at the bottom of the ocean and twitches? A nervous wreck.
+## What did the digital clock say to the grandfather clock? Look, no hands!
