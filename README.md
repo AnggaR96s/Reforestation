@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
