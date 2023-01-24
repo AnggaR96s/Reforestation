@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## I was going to get a brain transplant, but I changed my mind
