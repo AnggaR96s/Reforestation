@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## Why do choirs keep buckets handy? So they can carry their tune
