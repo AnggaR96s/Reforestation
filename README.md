@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## Why was it called the dark ages? Because of all the knights. 
