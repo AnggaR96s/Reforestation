@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## Why is the ocean always blue? Because the shore never waves back.
