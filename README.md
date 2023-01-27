@@ -1,1 +1,2 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
