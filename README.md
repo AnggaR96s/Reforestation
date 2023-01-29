@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## How are false teeth like stars? They come out at night!
