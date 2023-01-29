@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## Can I watch the TV? Dad: Yes, but don’t turn it on.
