@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
