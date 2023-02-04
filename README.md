@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
