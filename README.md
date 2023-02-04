@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## Did you know that ghosts call their true love their ghoul-friend?
