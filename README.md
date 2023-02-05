@@ -1,1 +1,1 @@
-## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
