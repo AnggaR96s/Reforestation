@@ -1,1 +1,1 @@
-## Why is Peter Pan always flying? Because he Neverlands.
+## What do you call a cow with no legs? Ground beef.
