@@ -1,1 +1,1 @@
-## I wish I could clean mirrors for a living. It's just something I can see myself doing.
+## I used to work for a soft drink can crusher. It was soda pressing.
