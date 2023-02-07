@@ -1,1 +1,1 @@
-## I used to work for a soft drink can crusher. It was soda pressing.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
