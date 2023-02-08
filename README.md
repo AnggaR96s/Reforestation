@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## What do you call a dad that has fallen through the ice? A Popsicle.
