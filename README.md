@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
