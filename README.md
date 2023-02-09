@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
