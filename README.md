@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## Two guys walked into a bar, the third one ducked.
