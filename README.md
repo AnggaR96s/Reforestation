@@ -1,1 +1,2 @@
-## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
