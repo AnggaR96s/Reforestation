@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## Whoever invented the knock-knock joke should get a no bell prize.
