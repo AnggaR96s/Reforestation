@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## I had a dream that I was a muffler last night. I woke up exhausted!
