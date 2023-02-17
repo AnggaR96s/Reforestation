@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## This morning I was wondering where the sun was, but then it dawned on me.
