@@ -1,1 +1,1 @@
-## I hate perforated lines, they're tearable.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
