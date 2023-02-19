@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## What does an angry pepper do? It gets jalapeño face.
