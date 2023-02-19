@@ -1,1 +1,1 @@
-## What do you get when you cross a bee and a sheep? A bah-humbug.
+## How many South Americans does it take to change a lightbulb? A Brazilian
