@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## What do you call cheese by itself? Provolone.
