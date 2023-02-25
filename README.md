@@ -1,1 +1,1 @@
-## You can't run through a camp site. You can only ran, because it's past tents.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
