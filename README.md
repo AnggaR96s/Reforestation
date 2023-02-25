@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
