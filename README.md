@@ -1,1 +1,1 @@
-## Why was the shirt happy to hang around the tank top? Because it was armless
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
