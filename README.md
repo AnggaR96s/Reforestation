@@ -1,1 +1,1 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
