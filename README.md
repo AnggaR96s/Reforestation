@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Why was it called the dark ages? Because of all the knights. 
