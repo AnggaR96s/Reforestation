@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## What do you call a dad that has fallen through the ice? A Popsicle.
