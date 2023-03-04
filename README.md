@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## My first time using an elevator was an uplifting experience. The second time let me down.
