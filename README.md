@@ -1,1 +1,1 @@
-## Where do bees go to the bathroom?  The BP station.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
