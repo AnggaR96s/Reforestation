@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
