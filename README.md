@@ -1,1 +1,2 @@
-## A Skeleton walked into a bar he said I need a beer and a mop
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
