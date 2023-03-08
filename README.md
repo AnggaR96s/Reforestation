@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## Why did the barber win the race? He took a short cut.
