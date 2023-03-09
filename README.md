@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## What do you call a droid that takes the long way around? R2 detour.
