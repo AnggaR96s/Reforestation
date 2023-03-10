@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
