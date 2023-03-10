@@ -1,1 +1,2 @@
-## When will the little snake arrive? I don't know but he won't be long...
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
