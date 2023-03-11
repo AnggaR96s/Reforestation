@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
