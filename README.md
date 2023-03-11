@@ -1,1 +1,1 @@
-## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
