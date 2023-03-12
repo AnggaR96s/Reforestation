@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
