@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
