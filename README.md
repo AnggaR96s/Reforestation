@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
