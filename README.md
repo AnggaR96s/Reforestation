@@ -1,1 +1,2 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
