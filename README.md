@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## I couldn't figure out how the seat belt worked. Then it just clicked.
