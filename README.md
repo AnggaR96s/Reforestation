@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## Ever wondered why bees hum? It's because they don't know the words.
