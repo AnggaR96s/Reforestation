@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## What is a vampire's favorite fruit? A blood orange.
