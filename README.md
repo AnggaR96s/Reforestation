@@ -1,1 +1,1 @@
-## The shovel was a ground-breaking invention.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
