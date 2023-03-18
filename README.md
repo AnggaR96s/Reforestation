@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## The shovel was a ground-breaking invention.
