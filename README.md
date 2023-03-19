@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## There's not really any training for garbagemen. They just pick things up as they go.
