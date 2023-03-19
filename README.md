@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
