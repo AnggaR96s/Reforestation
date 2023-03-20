@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## I ate a clock yesterday. It was so time consuming.
