@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
