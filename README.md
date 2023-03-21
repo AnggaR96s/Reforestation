@@ -1,1 +1,1 @@
-## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
