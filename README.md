@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## What has a bed that you can’t sleep in? A river.
