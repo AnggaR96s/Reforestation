@@ -1,1 +1,1 @@
-## What did the dog say to the two trees? Bark bark.
+## How are false teeth like stars? They come out at night!
