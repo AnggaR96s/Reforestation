@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## I couldn't figure out how the seat belt worked. Then it just clicked.
