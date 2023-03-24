@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
