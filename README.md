@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
