@@ -1,1 +1,1 @@
-## People are shocked to discover I have a police record but I love their greatest hits!
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
