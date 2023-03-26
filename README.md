@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## Who is the coolest Doctor in the hospital? The hip Doctor!
