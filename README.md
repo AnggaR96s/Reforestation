@@ -1,1 +1,1 @@
-## Who is the coolest Doctor in the hospital? The hip Doctor!
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
