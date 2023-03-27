@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
