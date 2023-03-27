@@ -1,1 +1,1 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
