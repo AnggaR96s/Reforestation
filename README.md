@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
