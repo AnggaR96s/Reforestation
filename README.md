@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## Why is no one friends with Dracula? Because he's a pain in the neck.
