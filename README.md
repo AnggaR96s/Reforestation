@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
