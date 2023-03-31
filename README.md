@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## How do you find Will Smith in the snow?  Look for fresh prints.
