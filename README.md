@@ -1,1 +1,1 @@
-## I used to work for an origami company but they folded.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
