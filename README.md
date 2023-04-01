@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
