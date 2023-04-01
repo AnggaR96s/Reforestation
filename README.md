@@ -1,1 +1,1 @@
-## Why did the opera singer go sailing? They wanted to hit the high Cs.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
