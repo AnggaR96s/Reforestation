@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
