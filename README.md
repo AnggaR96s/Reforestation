@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Why can't a bicycle stand on its own? It's two-tired.
