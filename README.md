@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
