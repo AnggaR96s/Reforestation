@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
