@@ -1,1 +1,1 @@
-## Why did the scarecrow win an award? Because he was outstanding in his field.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
