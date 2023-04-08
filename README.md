@@ -1,1 +1,1 @@
-## What do birds give out on Halloween? Tweets.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
