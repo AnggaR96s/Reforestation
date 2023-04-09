@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## Slept like a log last night … woke up in the fireplace.
