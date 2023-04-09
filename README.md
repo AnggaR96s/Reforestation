@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
