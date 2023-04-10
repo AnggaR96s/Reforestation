@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
