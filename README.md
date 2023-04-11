@@ -1,1 +1,1 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
