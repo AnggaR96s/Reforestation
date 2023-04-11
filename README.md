@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## What's a ninja's favorite type of shoes? Sneakers!
