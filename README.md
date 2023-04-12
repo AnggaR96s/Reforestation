@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## Why is the ocean always blue? Because the shore never waves back.
