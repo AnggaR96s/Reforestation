@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
