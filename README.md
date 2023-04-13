@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## Where do sheep go to get their hair cut? The baa-baa shop.
