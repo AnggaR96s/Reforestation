@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## Mountains aren't just funny, they are hill areas
