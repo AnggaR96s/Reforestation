@@ -1,1 +1,1 @@
-## Where do fish keep their money? In the riverbank
+## How does a French skeleton say hello? Bone-jour.
