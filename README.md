@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## Whoever invented the knock-knock joke should get a no bell prize.
