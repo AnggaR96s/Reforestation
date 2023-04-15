@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## The rotation of earth really makes my day.
