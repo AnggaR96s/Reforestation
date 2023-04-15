@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## What's red and bad for your teeth? A Brick.
