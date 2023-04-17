@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## Two guys walked into a bar, the third one ducked.
