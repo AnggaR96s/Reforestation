@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
