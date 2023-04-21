@@ -1,1 +1,1 @@
-## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
