@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## An apple a day keeps the bullies away. If you throw it hard enough.
