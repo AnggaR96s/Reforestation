@@ -1,1 +1,2 @@
-## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
+## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
+## "Pop," goes the weasel.
