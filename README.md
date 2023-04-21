@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
