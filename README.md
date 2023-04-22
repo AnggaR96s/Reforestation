@@ -1,1 +1,1 @@
-## Where does Napoleon keep his armies? In his sleevies.
+## Why do pirates not know the alphabet? They always get stuck at "C".
