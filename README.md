@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## Where does Napoleon keep his armies? In his sleevies.
