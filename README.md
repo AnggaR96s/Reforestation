@@ -1,1 +1,1 @@
-## They're making a movie about clocks. It's about time
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
