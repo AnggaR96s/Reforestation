@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## Why didn’t the orange win the race? It ran out of juice.
