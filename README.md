@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
