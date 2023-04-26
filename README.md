@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
