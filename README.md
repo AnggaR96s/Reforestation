@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## How are false teeth like stars? They come out at night!
