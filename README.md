@@ -1,1 +1,1 @@
-## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
