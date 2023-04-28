@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
