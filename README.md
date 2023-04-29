@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## The shovel was a ground-breaking invention.
