@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## How many tickles does it take to tickle an octopus? Ten-tickles!
