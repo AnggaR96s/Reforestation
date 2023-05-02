@@ -1,1 +1,1 @@
-## I was going to get a brain transplant, but I changed my mind
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
