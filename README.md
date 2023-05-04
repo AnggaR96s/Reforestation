@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## Did you know that ghosts call their true love their ghoul-friend?
