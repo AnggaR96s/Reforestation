@@ -1,1 +1,1 @@
-## I was shocked when I was diagnosed as colorblind... It came out of the purple.
+## I've started telling everyone about the benefits of eating dried grapes. It's all about raisin awareness.
