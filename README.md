@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## I knew a guy who collected candy canes, they were all in mint condition
