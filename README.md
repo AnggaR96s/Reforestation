@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## How does Darth Vader like his toast? On the dark side.
