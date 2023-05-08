@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## I've got a joke about vegetables for you... but it's a bit corny.
