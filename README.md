@@ -1,1 +1,2 @@
-## Why did the banana go to the doctor? He was not "peeling" well.
+## What is red and smells like blue paint?
+## Red paint!
