@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## What do you call a group of disorganized cats? A cat-tastrophe.
