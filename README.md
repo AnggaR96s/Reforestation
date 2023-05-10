@@ -1,1 +1,1 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
