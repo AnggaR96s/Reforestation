@@ -1,1 +1,1 @@
-## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
