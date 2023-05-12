@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
