@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
