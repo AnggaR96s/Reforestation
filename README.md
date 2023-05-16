@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## This is my step ladder. I never knew my real ladder.
