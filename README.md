@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## I decided to sell my Hoover… well it was just collecting dust.
