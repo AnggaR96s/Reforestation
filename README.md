@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## What is a tornado's favorite game to play? Twister!
