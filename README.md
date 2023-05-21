@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
