@@ -1,1 +1,1 @@
-## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
