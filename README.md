@@ -1,1 +1,1 @@
-## What has a bed that you can’t sleep in? A river.
+## An apple a day keeps the bullies away. If you throw it hard enough.
