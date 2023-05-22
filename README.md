@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## I was going to get a brain transplant, but I changed my mind
