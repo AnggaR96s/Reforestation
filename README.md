@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
