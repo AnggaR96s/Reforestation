@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## What does a clock do when it's hungry? It goes back four seconds!
