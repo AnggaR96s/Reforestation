@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## A cannibal is someone who is fed up with people.
