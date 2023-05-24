@@ -1,1 +1,1 @@
-## A Skeleton walked into a bar he said I need a beer and a mop
+## People are making apocalypse jokes like there’s no tomorrow.
