@@ -1,1 +1,2 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## What is red and smells like blue paint?
+## Red paint!
