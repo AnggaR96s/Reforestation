@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
