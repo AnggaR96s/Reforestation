@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## I have kleptomania, but when it gets bad, I take something for it.
