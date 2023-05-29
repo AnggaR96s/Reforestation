@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## How do you teach a kid to climb stairs? There is a step by step guide.
