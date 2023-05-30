@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Two peanuts were walking down the street. One was a salted.
