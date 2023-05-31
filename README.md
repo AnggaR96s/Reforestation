@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## I’m on a whiskey diet. I’ve lost three days already.
