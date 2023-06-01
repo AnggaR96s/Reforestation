@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## I've got a joke about vegetables for you... but it's a bit corny.
