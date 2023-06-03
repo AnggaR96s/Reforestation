@@ -1,1 +1,1 @@
-## Why do bears have hairy coats? Fur protection.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
