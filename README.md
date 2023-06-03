@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
