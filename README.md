@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
