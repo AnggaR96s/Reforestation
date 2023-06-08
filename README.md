@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
