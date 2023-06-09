@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## Me and my mates are in a band called Duvet. We're a cover band.
