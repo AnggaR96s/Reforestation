@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## What do you call a boy who stopped digging holes? Douglas.
