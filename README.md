@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## What do you call a fake noodle? An impasta.
