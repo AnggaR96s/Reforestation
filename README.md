@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
