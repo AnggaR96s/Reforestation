@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## What is a tornado's favorite game to play? Twister!
