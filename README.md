@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## Why did the tomato blush? Because it saw the salad dressing.
