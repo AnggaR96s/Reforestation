@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
