@@ -1,1 +1,1 @@
-## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
+## I am terrified of elevators. I’m going to start taking steps to avoid them.
