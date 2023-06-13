@@ -1,1 +1,1 @@
-## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
+## I knew a guy who collected candy canes, they were all in mint condition
