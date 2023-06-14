@@ -1,1 +1,1 @@
-## I am terrified of elevators. I’m going to start taking steps to avoid them.
+## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
