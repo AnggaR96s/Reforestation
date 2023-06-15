@@ -1,1 +1,1 @@
-## A girl once asked me what my heart desired, apparently blood, oxygen and neural messages were all wrong answers
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
