@@ -1,1 +1,1 @@
-## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
