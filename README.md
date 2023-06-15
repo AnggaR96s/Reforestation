@@ -1,1 +1,1 @@
-## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
+## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
