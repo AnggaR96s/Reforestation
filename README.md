@@ -1,1 +1,1 @@
-## Why do choirs keep buckets handy? So they can carry their tune
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
