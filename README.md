@@ -1,1 +1,1 @@
-## I remember when I was a kid, I opened my fridge and noticed one of my vegetables were crying. I guess I have some emotional cabbage.
+## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
