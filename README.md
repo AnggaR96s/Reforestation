@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## Why do choirs keep buckets handy? So they can carry their tune
