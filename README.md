@@ -1,1 +1,1 @@
-## I had a dream that I was a muffler last night. I woke up exhausted!
+## Why was the big cat disqualified from the race? Because it was a cheetah.
