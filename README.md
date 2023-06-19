@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
