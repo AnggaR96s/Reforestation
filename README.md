@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
