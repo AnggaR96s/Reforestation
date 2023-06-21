@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
