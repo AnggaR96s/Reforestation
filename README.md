@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
