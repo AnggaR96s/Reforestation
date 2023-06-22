@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## What kind of dinosaur loves to sleep? A stega-snore-us.
