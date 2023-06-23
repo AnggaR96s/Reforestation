@@ -1,1 +1,2 @@
-## What did Romans use to cut pizza before the rolling cutter was invented? Lil Caesars
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
