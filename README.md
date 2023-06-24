@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## Where does Fonzie like to go for lunch? Chick-Fil-Eyyyyyyyy.
