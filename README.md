@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## What do you call a duck that gets all A's? A wise quacker.
