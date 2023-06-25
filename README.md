@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## How do you fix a broken pizza? With tomato paste.
