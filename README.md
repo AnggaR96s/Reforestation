@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## What's a ninja's favorite type of shoes? Sneakers!
