@@ -1,1 +1,1 @@
-## What do you call an eagle who can play the piano? Talonted!
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
