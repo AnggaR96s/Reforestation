@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## Why don't eggs tell jokes? They'd crack each other up
