@@ -1,1 +1,1 @@
-## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
+## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
