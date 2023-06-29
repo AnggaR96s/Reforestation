@@ -1,1 +1,1 @@
-## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
+## So, I heard this pun about cows, but it’s kinda offensive so I won’t say it. I don’t want there to be any beef between us. 
