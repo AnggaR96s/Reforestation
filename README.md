@@ -1,1 +1,1 @@
-## New atoms frequently lose electrons when they fail to keep an ion them.
+## What do you do when your bunny gets wet? You get your hare dryer.
