@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## New atoms frequently lose electrons when they fail to keep an ion them.
