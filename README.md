@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## Don't trust atoms. They make up everything.
