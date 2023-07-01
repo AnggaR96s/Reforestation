@@ -1,1 +1,3 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
