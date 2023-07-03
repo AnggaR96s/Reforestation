@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## Why did the kid cross the playground? To get to the other slide.
