@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
