@@ -1,1 +1,1 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## This furniture store keeps emailing me, all I wanted was one night stand!
