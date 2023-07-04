@@ -1,1 +1,1 @@
-## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
