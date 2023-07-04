@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
