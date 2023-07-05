@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## What's black and white and read all over? The newspaper.
