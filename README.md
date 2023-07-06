@@ -1,1 +1,1 @@
-## I tried to milk a cow today, but was unsuccessful. Udder failure.
+## Why did the belt go to prison? He held up a pair of pants!
