@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
