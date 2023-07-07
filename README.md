@@ -1,1 +1,1 @@
-## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
