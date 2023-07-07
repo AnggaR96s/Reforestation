@@ -1,1 +1,1 @@
-## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
