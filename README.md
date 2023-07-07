@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
