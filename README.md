@@ -1,1 +1,1 @@
-## What's black and white and read all over? The newspaper.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
