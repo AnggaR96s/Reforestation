@@ -1,1 +1,1 @@
-## I used to work for a soft drink can crusher. It was soda pressing.
+## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
