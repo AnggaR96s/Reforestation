@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
