@@ -1,1 +1,1 @@
-## Don't buy flowers at a monastery. Because only you can prevent florist friars.
+## Ever wondered why bees hum? It's because they don't know the words.
