@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## I heard there was a new store called Moderation. They have everything there
