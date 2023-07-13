@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
