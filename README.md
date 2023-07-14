@@ -1,1 +1,1 @@
-## Why did the tomato blush? Because it saw the salad dressing.
+## I decided to sell my Hoover… well it was just collecting dust.
