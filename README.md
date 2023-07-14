@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## Do you know where you can get chicken broth in bulk? The stock market.
