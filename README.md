@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## What do you call a magician who has lost their magic? Ian.
