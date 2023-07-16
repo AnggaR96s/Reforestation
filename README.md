@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## What creature is smarter than a talking parrot? A spelling bee.
