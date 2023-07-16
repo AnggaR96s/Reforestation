@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
