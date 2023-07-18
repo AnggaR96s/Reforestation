@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## What do you call a cow on a trampoline? A milk shake!
