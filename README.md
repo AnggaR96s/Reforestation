@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## What do you get when you cross a bee and a sheep? A bah-humbug.
