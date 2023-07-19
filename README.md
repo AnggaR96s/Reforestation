@@ -1,1 +1,1 @@
-## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
+## Me and my mates are in a band called Duvet. We're a cover band.
