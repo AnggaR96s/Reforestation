@@ -1,1 +1,1 @@
-## Feeling pretty proud of myself. The Sesame Street puzzle I bought said 3-5 years, but I finished it in 18 months.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
