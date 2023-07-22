@@ -1,1 +1,1 @@
-## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
