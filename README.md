@@ -1,1 +1,1 @@
-## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
