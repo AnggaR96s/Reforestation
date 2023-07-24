@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## The urge to sing the Lion King song is just a whim away.
