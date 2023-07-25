@@ -1,1 +1,1 @@
-## A man was caught stealing in a supermarket today while balanced on the shoulders of a couple of vampires. He was charged with shoplifting on two counts. 
+## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
