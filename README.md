@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
