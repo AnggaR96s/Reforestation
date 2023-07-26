@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## What did Yoda say when he saw himself in 4K? "HDMI"
