@@ -1,1 +1,2 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
