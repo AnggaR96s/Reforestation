@@ -1,1 +1,1 @@
-## What do you call a crowd of chess players bragging about their wins in a hotel lobby? Chess nuts boasting in an open foyer.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
