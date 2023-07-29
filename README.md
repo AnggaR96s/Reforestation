@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## The first time I got a universal remote control I thought to myself, "This changes everything"
