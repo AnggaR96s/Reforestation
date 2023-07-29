@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## I’ll tell you something about German sausages, they’re the wurst
