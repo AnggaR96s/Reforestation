@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## What do you call a bee that lives in America? A USB.
