@@ -1,1 +1,1 @@
-## What do you call a bee that lives in America? A USB.
+## Why did the chicken get a penalty? For fowl play.
