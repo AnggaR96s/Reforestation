@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## Why do pirates not know the alphabet? They always get stuck at "C".
