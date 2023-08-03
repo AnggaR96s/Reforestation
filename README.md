@@ -1,1 +1,1 @@
-## What kind of music do planets listen to? Nep-tunes.
+## Why was the strawberry sad? Its parents were in a jam.
