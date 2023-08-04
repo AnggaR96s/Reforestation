@@ -1,1 +1,1 @@
-## What did Michael Jackson name his denim store?    Billy Jeans!
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
