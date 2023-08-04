@@ -1,1 +1,1 @@
-## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
