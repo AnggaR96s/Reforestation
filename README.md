@@ -1,1 +1,1 @@
-## What kind of music do mummy's like? Rap
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
