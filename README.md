@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## Why did the feline fail the lie detector test? Because he be lion.
