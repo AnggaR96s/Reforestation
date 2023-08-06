@@ -1,1 +1,1 @@
-## Why was ten scared of seven? Because seven ate nine.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
