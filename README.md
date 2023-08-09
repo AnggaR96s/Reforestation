@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## What does a female snake use for support? A co-Bra!
