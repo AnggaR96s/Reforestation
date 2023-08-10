@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## How do locomotives know where they're going? Lots of training
