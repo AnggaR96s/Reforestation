@@ -1,1 +1,1 @@
-## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
