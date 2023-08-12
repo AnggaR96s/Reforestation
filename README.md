@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## How do you make a hankie dance? Put a little boogie in it.
