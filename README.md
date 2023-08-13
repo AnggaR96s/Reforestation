@@ -1,1 +1,1 @@
-## A Skeleton walked into a bar he said I need a beer and a mop
+## I just got fired from a florist, apparently I took too many leaves.
