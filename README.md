@@ -1,1 +1,1 @@
-## Some people say that comedians who tell one too many light bulb jokes soon burn out, but they don't know watt they are talking about. They're not that bright.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
