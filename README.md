@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## I went to the zoo the other day, there was only one dog in it. It was a shitzu.
