@@ -1,1 +1,1 @@
-## What did one wall say to the other wall? I'll meet you at the corner!
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
