@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## What did one wall say to the other wall? I'll meet you at the corner!
