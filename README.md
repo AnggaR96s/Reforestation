@@ -1,1 +1,1 @@
-## What did one nut say as he chased another nut?  I'm a cashew!
+## How come a man driving a train got struck by lightning? He was a good conductor.
