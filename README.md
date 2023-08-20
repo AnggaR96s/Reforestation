@@ -1,1 +1,1 @@
-## I went to the zoo yesterday and saw a baguette in a cage. It was bread in captivity.
+## Why are skeletons so calm? Because nothing gets under their skin.
