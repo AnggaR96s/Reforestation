@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
