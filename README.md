@@ -1,1 +1,1 @@
-## What do you call a snake who builds houses? A boa constructor!
+## Why did the tree go to the dentist? It needed a root canal.
