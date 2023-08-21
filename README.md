@@ -1,1 +1,1 @@
-## Have you heard about the film "Constipation", you probably haven't because it's not out yet.
+## How come a man driving a train got struck by lightning? He was a good conductor.
