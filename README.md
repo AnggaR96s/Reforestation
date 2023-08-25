@@ -1,1 +1,1 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
