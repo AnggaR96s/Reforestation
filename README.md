@@ -1,1 +1,2 @@
-## A girl once asked me what my heart desired, apparently blood, oxygen and neural messages were all wrong answers
+## What's the difference between a seal and a sea lion?
+## An ion! 
