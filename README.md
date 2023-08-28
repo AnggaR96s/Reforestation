@@ -1,1 +1,1 @@
-## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
+## How do you find Will Smith in the snow?  Look for fresh prints.
