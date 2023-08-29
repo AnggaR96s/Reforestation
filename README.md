@@ -1,1 +1,1 @@
-## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
