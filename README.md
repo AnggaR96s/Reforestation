@@ -1,1 +1,1 @@
-## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
