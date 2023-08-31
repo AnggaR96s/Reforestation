@@ -1,1 +1,2 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
