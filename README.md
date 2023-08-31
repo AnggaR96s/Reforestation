@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## Why do crabs never give to charity? Because they’re shellfish.
