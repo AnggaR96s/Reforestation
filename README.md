@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## What did the sea say to the sand? "We have to stop meeting like this."
