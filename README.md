@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## What did the ocean say to the beach? Thanks for all the sediment.
