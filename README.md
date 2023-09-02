@@ -1,1 +1,1 @@
-## What do you call a careful wolf? Aware wolf.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
