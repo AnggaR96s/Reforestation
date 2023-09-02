@@ -1,1 +1,1 @@
-## What did the ocean say to the beach? Thanks for all the sediment.
+## Where do young cows eat lunch? In the calf-ateria.
