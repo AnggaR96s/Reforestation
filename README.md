@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## I ate a clock yesterday. It was so time consuming.
