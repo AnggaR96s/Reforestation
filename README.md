@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## Why was it called the dark ages? Because of all the knights. 
