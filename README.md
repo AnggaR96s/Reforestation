@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## Leather is great for sneaking around because it's made of hide.
