@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
