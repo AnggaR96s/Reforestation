@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## Why is the ocean always blue? Because the shore never waves back.
