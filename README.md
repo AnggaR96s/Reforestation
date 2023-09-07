@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## Why are graveyards so noisy? Because of all the coffin.
