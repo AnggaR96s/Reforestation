@@ -1,1 +1,1 @@
-## Where do fish keep their money? In the riverbank
+## What time did the man go to the dentist? Tooth hurt-y.
