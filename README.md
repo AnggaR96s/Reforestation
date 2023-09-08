@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
