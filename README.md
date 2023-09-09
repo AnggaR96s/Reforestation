@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## My dentist is the best, he even has a little plaque!
