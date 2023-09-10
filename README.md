@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## What do you call two guys hanging out by your window? Kurt & Rod.
