@@ -1,1 +1,3 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
