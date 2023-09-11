@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## The first time I got a universal remote control I thought to myself, "This changes everything"
