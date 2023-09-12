@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
