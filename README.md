@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
