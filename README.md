@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## What do birds give out on Halloween? Tweets.
