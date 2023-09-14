@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
