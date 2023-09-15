@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
