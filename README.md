@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
