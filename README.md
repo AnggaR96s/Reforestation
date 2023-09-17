@@ -1,1 +1,1 @@
-## A girl once asked me what my heart desired, apparently blood, oxygen and neural messages were all wrong answers
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
