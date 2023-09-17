@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
