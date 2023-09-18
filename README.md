@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## Why didn’t the orange win the race? It ran out of juice.
