@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
