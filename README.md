@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
