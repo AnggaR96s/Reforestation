@@ -1,1 +1,1 @@
-## "I'm sorry." "Hi sorry, I'm dad"
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
