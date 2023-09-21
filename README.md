@@ -1,1 +1,1 @@
-## Today, my son asked "Can I have a book mark?" and I burst into tears. 11 years old and he still doesn't know my name is Brian.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
