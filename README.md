@@ -1,1 +1,1 @@
-## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+## The first time I got a universal remote control I thought to myself, "This changes everything"
