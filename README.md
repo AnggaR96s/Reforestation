@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
