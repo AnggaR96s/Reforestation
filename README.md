@@ -1,1 +1,3 @@
-## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
