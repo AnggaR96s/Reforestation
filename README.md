@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## Why was the strawberry sad? Its parents were in a jam.
