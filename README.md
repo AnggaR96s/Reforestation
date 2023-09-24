@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## I used to hate facial hair, but then it grew on me.
