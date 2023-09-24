@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## Why is it always hot in the corner of a room? Because a corner is 90 degrees.
