@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## I got a reversible jacket for Christmas, I can't wait to see how it turns out.
