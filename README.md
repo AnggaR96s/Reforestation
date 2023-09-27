@@ -1,1 +1,1 @@
-## What was a more important invention than the first telephone? The second one.
+## I decided to sell my Hoover… well it was just collecting dust.
