@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## How come a man driving a train got struck by lightning? He was a good conductor.
