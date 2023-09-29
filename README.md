@@ -1,1 +1,1 @@
-## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
