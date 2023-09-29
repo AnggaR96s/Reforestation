@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## What's brown and sticky? A stick.
