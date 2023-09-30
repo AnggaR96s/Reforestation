@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
