@@ -1,1 +1,1 @@
-## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
