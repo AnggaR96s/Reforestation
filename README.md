@@ -1,1 +1,1 @@
-## Atheism is a non-prophet organisation.
+## Mountains aren't just funny, they are hill areas
