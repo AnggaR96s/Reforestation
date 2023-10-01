@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## Thanks for explaining the word "many" to me. It means a lot.
