@@ -1,1 +1,1 @@
-## What do you call two barracuda fish?  A Pairacuda!
+## What's a ninja's favorite type of shoes? Sneakers!
