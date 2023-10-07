@@ -1,1 +1,1 @@
-## What did the dog say to the two trees? Bark bark.
+## How do locomotives know where they're going? Lots of training
