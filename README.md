@@ -1,1 +1,1 @@
-## What did one wall say to the other wall? I'll meet you at the corner!
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
