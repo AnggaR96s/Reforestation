@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
