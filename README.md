@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
