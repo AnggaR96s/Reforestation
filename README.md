@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## I couldn't get a reservation at the library. They were completely booked.
