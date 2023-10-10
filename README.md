@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
