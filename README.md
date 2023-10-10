@@ -1,1 +1,1 @@
-## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
+## How come the stadium got hot after the game? Because all of the fans left.
