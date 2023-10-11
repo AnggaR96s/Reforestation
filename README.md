@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## I've got a joke about vegetables for you... but it's a bit corny.
