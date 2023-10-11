@@ -1,1 +1,1 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
