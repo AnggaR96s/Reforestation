@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
