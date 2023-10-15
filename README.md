@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
