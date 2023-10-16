@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## I used to be addicted to soap, but I'm clean now.
