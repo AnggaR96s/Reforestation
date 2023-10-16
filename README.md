@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## What kind of dinosaur loves to sleep? A stega-snore-us.
