@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## The rotation of earth really makes my day.
