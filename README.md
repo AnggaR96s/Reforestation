@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## I used to be addicted to soap, but I'm clean now.
