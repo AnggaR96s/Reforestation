@@ -1,1 +1,1 @@
-## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
