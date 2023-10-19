@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
