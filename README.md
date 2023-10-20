@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## I wanted to be a tailor but I didn't suit the job
