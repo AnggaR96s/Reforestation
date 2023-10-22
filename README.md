@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## "I'll call you later." Don't call me later, call me Dad.
