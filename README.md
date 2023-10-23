@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## Why are fish so smart? Because they live in schools!
