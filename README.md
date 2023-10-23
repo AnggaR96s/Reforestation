@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## A steak pun is a rare medium well done.
