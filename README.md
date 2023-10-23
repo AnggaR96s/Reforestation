@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
