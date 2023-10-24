@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
