@@ -1,1 +1,1 @@
-## What do you call a bear with no teeth? A gummy bear!
+## I used to work in a shoe recycling shop. It was sole destroying.
