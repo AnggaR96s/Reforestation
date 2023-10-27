@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## I ordered a chicken and an egg from Amazon. I'll let you know.
