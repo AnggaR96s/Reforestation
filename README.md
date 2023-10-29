@@ -1,1 +1,1 @@
-## ‘Put the cat out’ … ‘I didn’t realize it was on fire
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
