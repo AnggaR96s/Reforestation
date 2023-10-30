@@ -1,1 +1,2 @@
-## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
