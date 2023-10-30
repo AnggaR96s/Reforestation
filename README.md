@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## What creature is smarter than a talking parrot? A spelling bee.
