@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## How do the trees get on the internet? They log on.
