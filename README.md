@@ -1,1 +1,1 @@
-## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
