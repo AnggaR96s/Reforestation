@@ -1,1 +1,1 @@
-## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
+## I wouldn't buy anything with velcro. It's a total rip-off.
