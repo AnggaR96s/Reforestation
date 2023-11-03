@@ -1,1 +1,1 @@
-## I've started telling everyone about the benefits of eating dried grapes. It's all about raisin awareness.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
