@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## What did the ocean say to the shore? Nothing, it just waved.
