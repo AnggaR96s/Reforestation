@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## How do you get two whales in a car? Start in England and drive West.
