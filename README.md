@@ -1,1 +1,1 @@
-## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
