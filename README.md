@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
