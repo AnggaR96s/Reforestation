@@ -1,1 +1,1 @@
-## What has ears but cannot hear? A field of corn.
+## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
