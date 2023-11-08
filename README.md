@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## Why are skeletons so calm? Because nothing gets under their skin.
