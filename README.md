@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## What kind of tree fits in your hand? A palm tree!
