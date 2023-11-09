@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
