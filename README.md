@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## Where do young cows eat lunch? In the calf-ateria.
