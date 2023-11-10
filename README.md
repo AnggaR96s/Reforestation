@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## What do you call a fashionable lawn statue with an excellent sense of rhythmn? A metro-gnome
