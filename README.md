@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
