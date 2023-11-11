@@ -1,1 +1,1 @@
-## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
