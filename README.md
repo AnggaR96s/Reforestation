@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
