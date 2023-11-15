@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
