@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
