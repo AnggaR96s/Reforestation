@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## How come the stadium got hot after the game? Because all of the fans left.
