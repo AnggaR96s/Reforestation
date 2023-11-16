@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## Why did the m&m go to school? Because it wanted to be a Smartie!
