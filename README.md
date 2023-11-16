@@ -1,1 +1,1 @@
-## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
