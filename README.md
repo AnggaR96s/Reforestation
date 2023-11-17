@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## How many South Americans does it take to change a lightbulb? A Brazilian
