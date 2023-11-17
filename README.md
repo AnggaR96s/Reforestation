@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
