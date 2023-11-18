@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## How does a dyslexic poet write? Inverse.
