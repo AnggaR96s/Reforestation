@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
