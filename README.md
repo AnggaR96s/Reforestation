@@ -1,1 +1,1 @@
-## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
