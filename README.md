@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Why was the big cat disqualified from the race? Because it was a cheetah.
