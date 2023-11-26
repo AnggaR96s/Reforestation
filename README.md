@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
