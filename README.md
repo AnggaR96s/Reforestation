@@ -1,1 +1,1 @@
-## Why was the strawberry sad? Its parents were in a jam.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
