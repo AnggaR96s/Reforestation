@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
