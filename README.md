@@ -1,1 +1,1 @@
-## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
+## Why are fish so smart? Because they live in schools!
