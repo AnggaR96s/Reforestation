@@ -1,1 +1,1 @@
-## Why are fish so smart? Because they live in schools!
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
