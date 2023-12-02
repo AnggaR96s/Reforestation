@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
