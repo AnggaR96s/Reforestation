@@ -1,1 +1,1 @@
-## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
