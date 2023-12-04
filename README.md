@@ -1,1 +1,1 @@
-## What lies at the bottom of the ocean and twitches? A nervous wreck.
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
