@@ -1,1 +1,1 @@
-## My cat was just sick on the carpet, I don’t think it’s feline well.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
