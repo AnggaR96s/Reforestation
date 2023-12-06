@@ -1,1 +1,2 @@
-## So, I heard this pun about cows, but it’s kinda offensive so I won’t say it. I don’t want there to be any beef between us. 
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
