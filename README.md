@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## What do you call an eagle who can play the piano? Talonted!
