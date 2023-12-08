@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## If I could name myself after any Egyptian god, I'd be Set.
