@@ -1,1 +1,1 @@
-## What biscuit does a short person like? Shortbread. 
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
