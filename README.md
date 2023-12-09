@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## How come the stadium got hot after the game? Because all of the fans left.
