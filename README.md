@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
