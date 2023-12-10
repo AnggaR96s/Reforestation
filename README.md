@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
