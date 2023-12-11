@@ -1,1 +1,1 @@
-## Past, present, and future walked into a bar.... It was tense.
+## It doesn't matter how much you push the envelope. It will still be stationary.
