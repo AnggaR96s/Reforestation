@@ -1,1 +1,2 @@
-## How are false teeth like stars? They come out at night!
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
