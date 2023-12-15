@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
