@@ -1,1 +1,1 @@
-## Why are snake races so exciting? They're always neck and neck.
+## Writing with a broken pencil is pointless.
