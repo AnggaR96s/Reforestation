@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## Why are snake races so exciting? They're always neck and neck.
