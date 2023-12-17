@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
