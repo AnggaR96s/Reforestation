@@ -1,2 +1,1 @@
-## What's the difference between a seal and a sea lion?
-## An ion! 
+## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
