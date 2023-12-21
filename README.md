@@ -1,2 +1,2 @@
-## Why don't you find hippopotamuses hiding in trees?
-## They're really good at it.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
