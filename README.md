@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## Writing with a broken pencil is pointless.
