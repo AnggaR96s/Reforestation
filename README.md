@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## Why did the chicken get a penalty? For fowl play.
