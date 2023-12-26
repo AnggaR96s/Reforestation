@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## Did you hear the joke about the wandering nun? She was a roman catholic.
