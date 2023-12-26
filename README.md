@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## Why do cows not have toes? They lactose!
