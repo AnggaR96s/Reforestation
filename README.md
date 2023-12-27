@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
