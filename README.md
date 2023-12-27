@@ -1,1 +1,1 @@
-## Whenever the cashier at the grocery store asks my dad if he would like the milk in a bag he replies, ‘No, just leave it in the carton!’
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
