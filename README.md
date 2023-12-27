@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
