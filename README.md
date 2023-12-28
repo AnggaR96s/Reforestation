@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
