@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## How does a scientist freshen their breath? With experi-mints!
