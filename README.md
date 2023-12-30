@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## I got fired from a florist, apparently I took too many leaves.
