@@ -1,1 +1,1 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
