@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## What did the pirate say on his 80th birthday? Aye Matey!
