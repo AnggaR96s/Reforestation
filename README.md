@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## Why don't sharks eat clowns?  Because they taste funny.
