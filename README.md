@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
