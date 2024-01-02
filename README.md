@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
