@@ -1,1 +1,1 @@
-## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
