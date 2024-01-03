@@ -1,1 +1,1 @@
-## My sea sickness comes in waves.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
