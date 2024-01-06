@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
