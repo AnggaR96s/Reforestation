@@ -1,1 +1,1 @@
-## Did you hear about the new restaurant on the moon? The food is great, but there’s just no atmosphere.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
