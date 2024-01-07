@@ -1,1 +1,1 @@
-## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
