@@ -1,1 +1,1 @@
-## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
