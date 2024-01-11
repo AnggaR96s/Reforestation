@@ -1,1 +1,1 @@
-## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
+## Why didn’t the skeleton cross the road? Because he had no guts.
