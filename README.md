@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
