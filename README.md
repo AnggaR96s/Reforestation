@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## I couldn't get a reservation at the library. They were completely booked.
