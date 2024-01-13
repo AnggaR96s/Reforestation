@@ -1,1 +1,1 @@
-## My son is studying to be a surgeon, I just hope he makes the cut.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
