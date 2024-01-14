@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## Why did the kid cross the playground? To get to the other slide.
