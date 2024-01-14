@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
