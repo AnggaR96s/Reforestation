@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## How do you find Will Smith in the snow?  Look for fresh prints.
