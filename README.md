@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
