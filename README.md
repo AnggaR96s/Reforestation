@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## What do computers and air conditioners have in common? They both become useless when you open windows.
