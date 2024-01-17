@@ -1,1 +1,1 @@
-## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
