@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## What do you call a criminal going down the stairs? Condescending
