@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
