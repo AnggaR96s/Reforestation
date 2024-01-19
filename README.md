@@ -1,1 +1,1 @@
-## Where does Napoleon keep his armies? In his sleevies.
+## I boiled a funny bone last night and had a laughing stock
