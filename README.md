@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
