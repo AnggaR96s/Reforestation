@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## I wouldn't buy anything with velcro. It's a total rip-off.
