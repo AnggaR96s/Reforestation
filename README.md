@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## Did you hear about the two thieves who stole a calendar? They each got six months.
