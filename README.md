@@ -1,1 +1,2 @@
-## Why is Peter Pan always flying? Because he Neverlands.
+## What is red and smells like blue paint?
+## Red paint!
