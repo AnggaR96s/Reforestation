@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## What do prisoners use to call each other? Cell phones.
