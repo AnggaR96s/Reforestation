@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## People who don't eat gluten are really going against the grain.
