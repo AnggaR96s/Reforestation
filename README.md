@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
