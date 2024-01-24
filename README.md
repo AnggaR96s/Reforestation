@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## My boss told me to have a good day... so I went home.
