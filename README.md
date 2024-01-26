@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## How do you teach a kid to climb stairs? There is a step by step guide.
