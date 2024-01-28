@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## What's a ninja's favorite type of shoes? Sneakers!
