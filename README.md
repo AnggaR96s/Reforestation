@@ -1,1 +1,2 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
