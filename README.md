@@ -1,1 +1,1 @@
-## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
+## I wouldn't buy anything with velcro. It's a total rip-off.
