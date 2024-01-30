@@ -1,1 +1,1 @@
-## I'm tired of following my dreams. I'm just going to ask them where they are going and meet up with them later.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
