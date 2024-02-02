@@ -1,1 +1,1 @@
-## What do you do on a remote island? Try and find the TV island it belongs to.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
