@@ -1,1 +1,1 @@
-## A book just fell on my head. I only have my shelf to blame.
+## What’s E.T. short for? He’s only got little legs.
