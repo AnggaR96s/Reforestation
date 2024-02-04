@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## What did the calculator say to the student? You can count on me.
