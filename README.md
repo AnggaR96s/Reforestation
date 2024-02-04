@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## Breaking news! Energizer Bunny arrested – charged with battery.
