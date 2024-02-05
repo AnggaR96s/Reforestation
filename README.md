@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## A termite walks into a bar and asks “Is the bar tender here?”
