@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## How many tickles does it take to tickle an octopus? Ten-tickles!
