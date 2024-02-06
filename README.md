@@ -1,1 +1,1 @@
-## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
