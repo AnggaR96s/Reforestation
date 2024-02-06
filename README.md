@@ -1,1 +1,1 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
