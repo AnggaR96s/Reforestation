@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
