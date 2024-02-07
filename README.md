@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## When do doctors get angry? When they run out of patients.
