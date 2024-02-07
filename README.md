@@ -1,1 +1,1 @@
-## Why is Peter Pan always flying? Because he Neverlands.
+## What do you call a fat psychic? A four-chin teller.
