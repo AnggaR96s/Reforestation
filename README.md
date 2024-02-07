@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## What did the piece of bread say to the knife? Butter me up.
