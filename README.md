@@ -1,3 +1,1 @@
-## How many seconds are in a year?
-## 12.
-## January 2nd, February 2nd, March 2nd, April 2nd.... etc
+## A magician was driving down the street and then he turned into a driveway.
