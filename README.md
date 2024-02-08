@@ -1,1 +1,3 @@
-## Why are snake races so exciting? They're always neck and neck.
+## How many seconds are in a year?
+## 12.
+## January 2nd, February 2nd, March 2nd, April 2nd.... etc
