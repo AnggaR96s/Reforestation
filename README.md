@@ -1,1 +1,1 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## What time did the man go to the dentist? Tooth hurt-y.
