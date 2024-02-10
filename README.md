@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
