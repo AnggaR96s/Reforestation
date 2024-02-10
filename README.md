@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## People are making apocalypse jokes like there’s no tomorrow.
