@@ -1,1 +1,2 @@
-## Did you hear about the submarine industry? It really took a dive...
+## Where do cats write notes?
+## Scratch Paper!
