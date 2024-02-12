@@ -1,1 +1,1 @@
-## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
