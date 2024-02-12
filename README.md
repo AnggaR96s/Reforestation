@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
