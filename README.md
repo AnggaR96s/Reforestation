@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
