@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## My boss told me to attach two pieces of wood together... I totally nailed it!
