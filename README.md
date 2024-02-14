@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
