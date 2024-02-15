@@ -1,1 +1,1 @@
-## My boss told me to attach two pieces of wood together... I totally nailed it!
+## I've got a joke about vegetables for you... but it's a bit corny.
