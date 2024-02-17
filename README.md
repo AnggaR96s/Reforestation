@@ -1,1 +1,2 @@
-## What’s Forest Gump’s Facebook password? 1forest1
+## What's large, grey, and doesn't matter?
+## An irrelephant.
