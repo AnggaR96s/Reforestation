@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## Is there a hole in your shoe? No… Then how’d you get your foot in it?
