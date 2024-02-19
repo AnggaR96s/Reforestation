@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
