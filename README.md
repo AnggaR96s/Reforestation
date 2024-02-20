@@ -1,1 +1,1 @@
-## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
