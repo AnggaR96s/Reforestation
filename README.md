@@ -1,1 +1,1 @@
-## How did the hipster burn the roof of his mouth? He ate the pizza before it was cool.
+## I started a new business making yachts in my attic this year...the sails are going through the roof
