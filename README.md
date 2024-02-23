@@ -1,1 +1,1 @@
-## Why was the big cat disqualified from the race? Because it was a cheetah.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
