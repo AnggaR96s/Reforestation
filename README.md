@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## What do you call a bear with no teeth? A gummy bear!
