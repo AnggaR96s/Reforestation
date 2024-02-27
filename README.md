@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## I’ve deleted the phone numbers of all the Germans I know from my mobile phone. Now it’s Hans free.
