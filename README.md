@@ -1,1 +1,1 @@
-## What do you call a fake noodle? An impasta.
+## Have you heard of the band 1023MB? They haven't got a gig yet.
