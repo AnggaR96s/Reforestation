@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## Why did the man run around his bed? Because he was trying to catch up on his sleep!
