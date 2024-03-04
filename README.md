@@ -1,1 +1,2 @@
-## I was going to get a brain transplant, but I changed my mind
+## What's the difference between a seal and a sea lion?
+## An ion! 
