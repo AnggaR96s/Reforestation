@@ -1,1 +1,1 @@
-## Why did the man run around his bed? Because he was trying to catch up on his sleep!
+## How come a man driving a train got struck by lightning? He was a good conductor.
