@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
