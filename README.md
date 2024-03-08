@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## What has ears but cannot hear? A field of corn.
