@@ -1,1 +1,1 @@
-## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
