@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
