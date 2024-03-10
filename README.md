@@ -1,1 +1,1 @@
-## What do you call someone with no nose? Nobody knows.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
