@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## We all know where the Big Apple is but does anyone know where the Minneapolis?
