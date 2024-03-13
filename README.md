@@ -1,1 +1,1 @@
-## We all know where the Big Apple is but does anyone know where the Minneapolis?
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
