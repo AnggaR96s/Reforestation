@@ -1,1 +1,1 @@
-## What do you call a guy lying on your doorstep? Matt.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
