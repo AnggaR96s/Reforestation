@@ -1,1 +1,1 @@
-## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
