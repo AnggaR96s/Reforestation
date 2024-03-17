@@ -1,1 +1,1 @@
-## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
