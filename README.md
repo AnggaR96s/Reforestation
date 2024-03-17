@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## What did the ocean say to the beach? Thanks for all the sediment.
