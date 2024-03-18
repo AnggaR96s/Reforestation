@@ -1,1 +1,1 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## Why do mathematicians hate the U.S.? Because it's indivisible.
