@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
