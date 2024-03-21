@@ -1,1 +1,3 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## How many seconds are in a year?
+## 12.
+## January 2nd, February 2nd, March 2nd, April 2nd.... etc
