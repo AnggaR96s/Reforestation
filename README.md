@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
