@@ -1,1 +1,1 @@
-## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
