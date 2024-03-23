@@ -1,1 +1,1 @@
-## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
