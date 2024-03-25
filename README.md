@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
