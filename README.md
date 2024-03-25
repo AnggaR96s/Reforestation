@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
