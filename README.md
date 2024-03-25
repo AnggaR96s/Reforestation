@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## What kind of music do mummy's like? Rap
