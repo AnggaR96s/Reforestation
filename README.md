@@ -1,1 +1,1 @@
-## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
