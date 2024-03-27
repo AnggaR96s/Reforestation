@@ -1,1 +1,1 @@
-## Did you hear the one about the giant pickle?  He was kind of a big dill.
+## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
