@@ -1,1 +1,1 @@
-## To the person who stole my anti-depressant pills: I hope you're happy now.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
