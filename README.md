@@ -1,1 +1,1 @@
-## What do you call someone with no nose? Nobody knows.
+## What do you call corn that joins the army? Kernel.
