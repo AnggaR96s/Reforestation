@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
