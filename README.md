@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## How many tickles does it take to tickle an octopus? Ten-tickles!
