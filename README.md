@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## What did Yoda say when he saw himself in 4K? "HDMI"
