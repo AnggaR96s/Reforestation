@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
