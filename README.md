@@ -1,1 +1,1 @@
-## My wife said I was immature. So I told her to get out of my fort.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
