@@ -1,1 +1,1 @@
-## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
