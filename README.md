@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## What do you call a cow on a trampoline? A milk shake!
