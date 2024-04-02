@@ -1,1 +1,1 @@
-## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
