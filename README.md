@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
