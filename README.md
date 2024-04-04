@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## Why didn't the number 4 get into the nightclub? Because he is 2 square.
