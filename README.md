@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## Me and my mates are in a band called Duvet. We're a cover band.
