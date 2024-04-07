@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## How do you make holy water? You boil the hell out of it.
