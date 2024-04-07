@@ -1,1 +1,1 @@
-## What do you call an eagle who can play the piano? Talonted!
+## How does a French skeleton say hello? Bone-jour.
