@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## Dad, can you put my shoes on? I don't think they'll fit me.
