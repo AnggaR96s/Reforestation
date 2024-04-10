@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
