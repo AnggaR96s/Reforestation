@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
