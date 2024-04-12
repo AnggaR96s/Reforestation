@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## If two vegans are having an argument, is it still considered beef?
