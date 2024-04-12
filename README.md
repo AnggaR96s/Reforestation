@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Waking up this morning was an eye-opening experience.
