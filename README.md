@@ -1,1 +1,1 @@
-## They're making a movie about clocks. It's about time
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
