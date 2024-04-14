@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
