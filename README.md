@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
