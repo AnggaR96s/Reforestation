@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## Have you heard about the owl sanctuary job opening? It’s all night shifts but they’re all a hoot over there.
