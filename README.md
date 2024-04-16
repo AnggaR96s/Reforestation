@@ -1,1 +1,1 @@
-## What did the shy pebble wish for? That she was a little boulder.
+## What do you call a duck that gets all A's? A wise quacker.
