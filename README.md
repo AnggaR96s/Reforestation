@@ -1,1 +1,1 @@
-## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
+## What do computers and air conditioners have in common? They both become useless when you open windows.
