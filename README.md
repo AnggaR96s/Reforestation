@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
