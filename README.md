@@ -1,1 +1,1 @@
-## Why did the melons plan a big wedding? Because they cantaloupe!
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
