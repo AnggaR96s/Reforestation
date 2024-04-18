@@ -1,1 +1,1 @@
-## Want to hear my pizza joke? Never mind, it's too cheesy.
+## Why did the melons plan a big wedding? Because they cantaloupe!
