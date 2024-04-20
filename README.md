@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## Do you know where you can get chicken broth in bulk? The stock market.
