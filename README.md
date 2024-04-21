@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## Just read a few facts about frogs. They were ribbiting.
