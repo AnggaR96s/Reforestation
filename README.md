@@ -1,1 +1,1 @@
-## Just read a few facts about frogs. They were ribbiting.
+## I used to hate facial hair, but then it grew on me.
