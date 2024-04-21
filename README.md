@@ -1,1 +1,1 @@
-## What kind of magic do cows believe in? MOODOO.
+## What creature is smarter than a talking parrot? A spelling bee.
