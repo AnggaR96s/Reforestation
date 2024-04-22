@@ -1,1 +1,1 @@
-## How come a man driving a train got struck by lightning? He was a good conductor.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
