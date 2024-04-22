@@ -1,1 +1,1 @@
-## What did the ocean say to the shore? Nothing, it just waved.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
