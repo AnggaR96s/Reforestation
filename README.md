@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## How come a man driving a train got struck by lightning? He was a good conductor.
