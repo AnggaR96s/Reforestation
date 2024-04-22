@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## What did the ocean say to the shore? Nothing, it just waved.
