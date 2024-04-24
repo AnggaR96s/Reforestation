@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## Slept like a log last night … woke up in the fireplace.
