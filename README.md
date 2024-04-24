@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
