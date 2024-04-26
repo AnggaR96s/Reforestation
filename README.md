@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
