@@ -1,1 +1,1 @@
-## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
