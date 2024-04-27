@@ -1,1 +1,1 @@
-## What's blue and not very heavy?  Light blue.
+## Whoever invented the knock-knock joke should get a no bell prize.
