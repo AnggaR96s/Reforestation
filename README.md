@@ -1,1 +1,1 @@
-## Milk is also the fastest liquid on earth – its pasteurized before you even see it
+## A man tried to sell me a coffin today. I told him that's the last thing I need.
