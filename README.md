@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## Remember, the best angle to approach a problem from is the "try" angle.
