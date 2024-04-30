@@ -1,1 +1,3 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
