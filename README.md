@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
