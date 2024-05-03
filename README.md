@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
