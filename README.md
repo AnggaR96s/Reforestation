@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## What kind of bagel can fly? A plain bagel.
