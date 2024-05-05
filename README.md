@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## I used to be addicted to the hokey pokey, but I turned myself around.
