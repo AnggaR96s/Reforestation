@@ -1,1 +1,2 @@
-## Why do bees hum? Because they don't know the words.
+## What is red and smells like blue paint?
+## Red paint!
