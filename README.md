@@ -1,1 +1,1 @@
-## Animal Fact #25: Most bobcats are not named bob.
+## Why don't sharks eat clowns?  Because they taste funny.
