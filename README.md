@@ -1,1 +1,1 @@
-## Why don't sharks eat clowns?  Because they taste funny.
+## Why did the kid cross the playground? To get to the other slide.
