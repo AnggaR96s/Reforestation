@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
