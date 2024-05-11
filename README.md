@@ -1,1 +1,1 @@
-## If you walk into a forest and cut down a tree, but the tree doesn't understand why you cut it down, do you think it's stumped?
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
