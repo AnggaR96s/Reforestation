@@ -1,1 +1,1 @@
-## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
