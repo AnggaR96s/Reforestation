@@ -1,1 +1,1 @@
-## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
