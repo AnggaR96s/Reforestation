@@ -1,1 +1,1 @@
-## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
+## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
