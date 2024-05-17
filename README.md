@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## When do doctors get angry? When they run out of patients.
