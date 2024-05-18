@@ -1,1 +1,1 @@
-## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
+## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
