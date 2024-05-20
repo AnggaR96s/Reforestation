@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
