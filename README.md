@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## What did the scarf say to the hat? You go on ahead, I am going to hang around a bit longer.
