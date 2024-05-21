@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## Why are graveyards so noisy? Because of all the coffin.
