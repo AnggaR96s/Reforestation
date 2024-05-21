@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## If two vegans are having an argument, is it still considered beef?
