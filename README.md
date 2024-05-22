@@ -1,1 +1,1 @@
-## Waking up this morning was an eye-opening experience.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
