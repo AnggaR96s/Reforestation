@@ -1,1 +1,1 @@
-## I was going to get a brain transplant, but I changed my mind
+## I was in an 80's band called the prevention. We were better than the cure.
