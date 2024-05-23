@@ -1,1 +1,1 @@
-## What do you call a magician who has lost their magic? Ian.
+## What do you call a nervous javelin thrower? Shakespeare.
