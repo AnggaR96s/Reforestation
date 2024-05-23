@@ -1,1 +1,1 @@
-## Chances are if you' ve seen one shopping center, you've seen a mall.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
