@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## I couldn't figure out how the seat belt worked. Then it just clicked.
