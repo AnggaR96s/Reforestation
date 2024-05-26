@@ -1,1 +1,1 @@
-## It takes guts to be an organ donor.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
