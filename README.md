@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## How do you make Lady Gaga cry? Poker face. 
