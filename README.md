@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
