@@ -1,1 +1,1 @@
-## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
+## Did you know that ghosts call their true love their ghoul-friend?
