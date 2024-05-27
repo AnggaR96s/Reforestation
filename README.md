@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## What do you call a nervous javelin thrower? Shakespeare.
