@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## Writing with a broken pencil is pointless.
