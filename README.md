@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## What is a witch's favorite subject in school? Spelling!
