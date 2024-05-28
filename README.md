@@ -1,1 +1,1 @@
-## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
+## What did the grape do when he got stepped on? He let out a little wine.
