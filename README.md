@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
