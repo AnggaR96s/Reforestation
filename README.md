@@ -1,1 +1,1 @@
-## Bad at golf? Join the club.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
