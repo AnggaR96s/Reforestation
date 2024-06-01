@@ -1,1 +1,1 @@
-## I invented a new word! Plagiarism!
+## Bad at golf? Join the club.
