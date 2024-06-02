@@ -1,1 +1,1 @@
-## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
+## What did the left eye say to the right eye? Between us, something smells!
