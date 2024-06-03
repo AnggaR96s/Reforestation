@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
