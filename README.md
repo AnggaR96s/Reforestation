@@ -1,1 +1,1 @@
-## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
+## What concert costs only 45 cents? 50 cent featuring Nickelback.
