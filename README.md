@@ -1,1 +1,1 @@
-## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
