@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
