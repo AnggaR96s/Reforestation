@@ -1,1 +1,1 @@
-## I’ll tell you something about German sausages, they’re the wurst
+## How does a scientist freshen their breath? With experi-mints!
