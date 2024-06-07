@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
