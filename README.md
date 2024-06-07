@@ -1,1 +1,1 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
