@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## I used to be addicted to the hokey pokey, but I turned myself around.
