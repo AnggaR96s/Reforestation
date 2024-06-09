@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## How does a scientist freshen their breath? With experi-mints!
