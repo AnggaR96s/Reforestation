@@ -1,1 +1,2 @@
-## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
+## 
