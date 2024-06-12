@@ -1,1 +1,3 @@
-## What do you call a snake who builds houses? A boa constructor!
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
