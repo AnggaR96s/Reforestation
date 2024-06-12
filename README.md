@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## What do you call a snake who builds houses? A boa constructor!
