@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
