@@ -1,1 +1,1 @@
-## What do you call a cow with no legs? Ground beef.
+## Where did you learn to make ice cream? Sunday school.
