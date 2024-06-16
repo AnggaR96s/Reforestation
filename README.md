@@ -1,1 +1,1 @@
-## What do Alexander the Great and Winnie the Pooh have in common? Same middle name.
+## There's not really any training for garbagemen. They just pick things up as they go.
