@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## What do you call corn that joins the army? Kernel.
