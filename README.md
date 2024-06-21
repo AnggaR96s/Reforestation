@@ -1,1 +1,1 @@
-## What do you call an Argentinian with a rubber toe? Roberto
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
