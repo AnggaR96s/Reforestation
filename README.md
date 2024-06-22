@@ -1,1 +1,1 @@
-## "What time is it?" I don't know... it keeps changing.
+## Where does Napoleon keep his armies? In his sleevies.
