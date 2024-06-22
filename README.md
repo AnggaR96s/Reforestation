@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-## 
-## They can't control their pupils.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
