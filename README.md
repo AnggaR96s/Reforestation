@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
