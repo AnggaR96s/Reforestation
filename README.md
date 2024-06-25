@@ -1,1 +1,1 @@
-## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
+## What did the Dorito farmer say to the other Dorito farmer? Cool Ranch!
