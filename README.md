@@ -1,1 +1,1 @@
-## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
