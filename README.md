@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
