@@ -1,1 +1,2 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
