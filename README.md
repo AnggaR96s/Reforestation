@@ -1,1 +1,1 @@
-## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
