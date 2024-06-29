@@ -1,1 +1,1 @@
-## Velcro… What a rip-off.
+## What's orange and sounds like a parrot? A Carrot.
