@@ -1,1 +1,3 @@
-## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+## How many seconds are in a year?
+## 12.
+## January 2nd, February 2nd, March 2nd, April 2nd.... etc
