@@ -1,1 +1,1 @@
-## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
