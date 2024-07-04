@@ -1,1 +1,1 @@
-## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
