@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Why did the clown have neck pain? - Because he slept funny
