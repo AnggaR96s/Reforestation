@@ -1,1 +1,1 @@
-## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
+## I just read a book about Stockholm syndrome. It was pretty bad at first, but by the end I liked it.
