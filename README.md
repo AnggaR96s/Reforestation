@@ -1,1 +1,1 @@
-## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
