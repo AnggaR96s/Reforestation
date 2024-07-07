@@ -1,1 +1,1 @@
-## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
+## Did you hear about the guy whose whole left side was cut off? He's all right now.
