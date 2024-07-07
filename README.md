@@ -1,1 +1,1 @@
-## Want to hear my pizza joke? Never mind, it's too cheesy.
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
