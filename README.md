@@ -1,3 +1,1 @@
-## Never Trust Someone With Graph Paper...
-## 
-## They're always plotting something.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
