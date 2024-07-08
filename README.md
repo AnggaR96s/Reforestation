@@ -1,1 +1,3 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## Never Trust Someone With Graph Paper...
+## 
+## They're always plotting something.
