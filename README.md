@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
