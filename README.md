@@ -1,1 +1,3 @@
-## What did the Red light say to the Green light? Don't look at me I'm changing!
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
