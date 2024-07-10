@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
