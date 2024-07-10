@@ -1,1 +1,1 @@
-## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
