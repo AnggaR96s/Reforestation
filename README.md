@@ -1,1 +1,1 @@
-## Have you heard the story about the magic tractor? It drove down the road and turned into a field.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
