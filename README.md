@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
