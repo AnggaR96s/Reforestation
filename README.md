@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## What did the big flower say to the littler flower? Hi, bud!
