@@ -1,1 +1,1 @@
-## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
