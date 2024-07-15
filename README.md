@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## Why do you never see elephants hiding in trees? Because they're so good at it.
