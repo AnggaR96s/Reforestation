@@ -1,1 +1,1 @@
-## What do you call a sheep with no legs? A cloud.
+## Why don't sharks eat clowns?  Because they taste funny.
