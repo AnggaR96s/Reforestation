@@ -1,1 +1,1 @@
-## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
