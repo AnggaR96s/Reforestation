@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
