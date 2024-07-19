@@ -1,2 +1,1 @@
-## Cosmetic surgery used to be such a taboo subject.
-## Now you can talk about Botox and nobody raises an eyebrow.
+## Why did the worker get fired from the orange juice factory? Lack of concentration.
