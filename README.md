@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
