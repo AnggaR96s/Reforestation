@@ -1,1 +1,1 @@
-## What did one wall say to the other wall? I'll meet you at the corner!
+## Why didn’t the skeleton cross the road? Because he had no guts.
