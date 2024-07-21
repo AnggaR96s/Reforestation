@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## A farmer had 297 cows, when he rounded them up, he found he had 300
