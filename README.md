@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## Why was the strawberry sad? Its parents were in a jam.
