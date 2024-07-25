@@ -1,1 +1,2 @@
-## Someone asked me to name two structures that hold water. I said "Well dam"
+## Why did the cookie cry?
+## Because his mother was a wafer so long
