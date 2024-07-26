@@ -1,1 +1,1 @@
-## Scientists finally did a study on forks. It's about tine!
+## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
