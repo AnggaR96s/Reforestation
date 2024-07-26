@@ -1,1 +1,1 @@
-## When does a joke become a dad joke? When it becomes apparent.
+## what do you call a dog that can do magic tricks? a labracadabrador
