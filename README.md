@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## The first time I got a universal remote control I thought to myself, "This changes everything"
