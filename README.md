@@ -1,1 +1,1 @@
-## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
