@@ -1,1 +1,2 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
