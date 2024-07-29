@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
