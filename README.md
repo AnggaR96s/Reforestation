@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## Two silk worms had a race. They ended up in a tie.
