@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## A farmer had 297 cows, when he rounded them up, he found he had 300
