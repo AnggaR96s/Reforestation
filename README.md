@@ -1,1 +1,1 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## How does Darth Vader like his toast? On the dark side.
