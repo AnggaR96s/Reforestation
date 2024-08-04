@@ -1,1 +1,3 @@
-## Have you ever seen fruit preserves being made? It's jarring.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
