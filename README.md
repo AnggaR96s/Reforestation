@@ -1,1 +1,1 @@
-## How do you get a baby alien to sleep?  You rocket.
+## What do you call a bee that lives in America? A USB.
