@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## How does a French skeleton say hello? Bone-jour.
