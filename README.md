@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
