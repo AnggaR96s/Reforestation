@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Where do rabbits go after they get married? On a bunny-moon.
