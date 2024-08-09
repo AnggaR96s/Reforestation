@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## Why was it called the dark ages? Because of all the knights. 
