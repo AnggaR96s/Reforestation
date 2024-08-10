@@ -1,1 +1,1 @@
-## What kind of bagel can fly? A plain bagel.
+## I used to be a banker, but I lost interest.
