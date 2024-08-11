@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
