@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
