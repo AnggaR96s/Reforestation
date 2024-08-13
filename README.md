@@ -1,1 +1,2 @@
-## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
