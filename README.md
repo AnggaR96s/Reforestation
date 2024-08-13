@@ -1,1 +1,1 @@
-## What do you call corn that joins the army? Kernel.
+## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
