@@ -1,1 +1,3 @@
-## Scientists finally did a study on forks. It's about tine!
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
