@@ -1,1 +1,1 @@
-## What did the Red light say to the Green light? Don't look at me I'm changing!
+## No matter how kind you are, German children are kinder.
