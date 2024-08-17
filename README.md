@@ -1,1 +1,2 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## What is the best way to carve?
+## Whittle by whittle.
