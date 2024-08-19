@@ -1,1 +1,1 @@
-## A man walked in to a bar with some asphalt on his arm. He said “Two beers please, one for me and one for the road.”
+## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
