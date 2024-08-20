@@ -1,1 +1,1 @@
-## I wish I could clean mirrors for a living. It's just something I can see myself doing.
+## What did the sea say to the sand? "We have to stop meeting like this."
