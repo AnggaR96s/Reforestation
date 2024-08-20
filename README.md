@@ -1,1 +1,1 @@
-## If you walk into a forest and cut down a tree, but the tree doesn't understand why you cut it down, do you think it's stumped?
+## Sometimes I tuck my knees into my chest and lean forward.  That’s just how I roll.
