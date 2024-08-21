@@ -1,1 +1,1 @@
-## Why is no one friends with Dracula? Because he's a pain in the neck.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
