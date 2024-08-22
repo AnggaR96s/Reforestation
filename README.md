@@ -1,1 +1,1 @@
-## Why did the worker get fired from the orange juice factory? Lack of concentration.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
