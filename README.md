@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
