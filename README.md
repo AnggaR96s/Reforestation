@@ -1,1 +1,2 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## What do you do when you see a space man?
+## Park your car, man.
