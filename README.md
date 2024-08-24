@@ -1,2 +1,1 @@
-## What do you do when you see a space man?
-## Park your car, man.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
