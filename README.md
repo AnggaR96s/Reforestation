@@ -1,1 +1,1 @@
-## What's the best thing about elevator jokes? They work on so many levels.
+## Why didn’t the skeleton cross the road? Because he had no guts.
