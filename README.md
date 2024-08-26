@@ -1,1 +1,1 @@
-## Camping is intense.
+## People are making apocalypse jokes like there’s no tomorrow.
