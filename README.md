@@ -1,1 +1,1 @@
-## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
+## I wouldn't buy anything with velcro. It's a total rip-off.
