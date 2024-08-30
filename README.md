@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
