@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## I used to be a banker, but I lost interest.
