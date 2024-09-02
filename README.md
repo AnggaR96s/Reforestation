@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
