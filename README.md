@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## A steak pun is a rare medium well done.
