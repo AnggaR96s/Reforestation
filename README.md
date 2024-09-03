@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## What did the grape do when he got stepped on? He let out a little wine.
