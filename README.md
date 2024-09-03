@@ -1,1 +1,1 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
