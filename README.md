@@ -1,1 +1,1 @@
-## How do you make Lady Gaga cry? Poker face. 
+## What do computers and air conditioners have in common? They both become useless when you open windows.
