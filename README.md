@@ -1,1 +1,1 @@
-## What do you call someone with no nose? Nobody knows.
+## Don't trust atoms. They make up everything.
