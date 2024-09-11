@@ -1,1 +1,1 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
