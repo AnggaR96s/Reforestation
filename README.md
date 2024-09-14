@@ -1,1 +1,1 @@
-## "Hey, dad, did you get a haircut?" "No, I got them all cut."
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
