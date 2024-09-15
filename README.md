@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
