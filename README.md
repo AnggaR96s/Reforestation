@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## Why are snake races so exciting? They're always neck and neck.
