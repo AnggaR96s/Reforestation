@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
