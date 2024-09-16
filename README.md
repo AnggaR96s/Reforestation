@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## What do prisoners use to call each other? Cell phones.
