@@ -1,1 +1,1 @@
-## Why are snake races so exciting? They're always neck and neck.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
