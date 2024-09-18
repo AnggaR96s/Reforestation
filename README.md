@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## What musical instrument is found in the bathroom? A tuba toothpaste.
