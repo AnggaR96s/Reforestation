@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## “Hold on, I have something in my shoe”  “I’m pretty sure it’s a foot”
