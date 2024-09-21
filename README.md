@@ -1,1 +1,1 @@
-## Me and my mates are in a band called Duvet. We're a cover band.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
