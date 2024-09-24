@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## Why did the knife dress up in a suit? Because it wanted to look sharp
