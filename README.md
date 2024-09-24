@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
