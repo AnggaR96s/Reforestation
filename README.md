@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
