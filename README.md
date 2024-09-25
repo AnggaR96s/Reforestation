@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## To the person who stole my anti-depressant pills: I hope you're happy now.
