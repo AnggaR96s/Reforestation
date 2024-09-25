@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## What do you call a pig that knows karate? A pork chop!
