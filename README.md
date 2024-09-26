@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## Why do bears have hairy coats? Fur protection.
