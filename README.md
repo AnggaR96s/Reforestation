@@ -1,1 +1,1 @@
-## I invented a new word! Plagiarism!
+## Why are fish so smart? Because they live in schools!
