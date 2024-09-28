@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## How many tickles does it take to tickle an octopus? Ten-tickles!
