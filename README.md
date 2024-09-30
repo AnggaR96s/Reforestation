@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## What is a vampire's favorite fruit? A blood orange.
