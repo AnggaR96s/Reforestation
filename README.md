@@ -1,1 +1,1 @@
-## Why did Dracula lie in the wrong coffin? He made a grave mistake.
+## A cannibal is someone who is fed up with people.
