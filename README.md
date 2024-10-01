@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## Two silk worms had a race. They ended up in a tie.
