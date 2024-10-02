@@ -1,1 +1,1 @@
-## Have you ever seen fruit preserves being made? It's jarring.
+## Don't trust atoms. They make up everything.
