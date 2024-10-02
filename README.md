@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## What kind of tree fits in your hand? A palm tree!
