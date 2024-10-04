@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## Two satellites decided to get married. The wedding wasn't much, but the reception was incredible.
