@@ -1,1 +1,2 @@
-## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
+## Why did Mozart kill all his chickens?
+## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
