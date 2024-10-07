@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## I’m on a whiskey diet. I’ve lost three days already.
