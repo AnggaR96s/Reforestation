@@ -1,1 +1,1 @@
-## Why doesn't the Chimney-Sweep call out sick from work? Because he's used to working with a flue.
+## My first time using an elevator was an uplifting experience. The second time let me down.
