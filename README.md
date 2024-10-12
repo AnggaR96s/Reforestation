@@ -1,1 +1,1 @@
-## My first time using an elevator was an uplifting experience. The second time let me down.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
