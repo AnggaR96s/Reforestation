@@ -1,1 +1,1 @@
-## Have you ever seen fruit preserves being made? It's jarring.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
