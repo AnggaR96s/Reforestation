@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
