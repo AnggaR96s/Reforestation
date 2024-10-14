@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## A termite walks into a bar and asks “Is the bar tender here?”
