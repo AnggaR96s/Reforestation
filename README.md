@@ -1,1 +1,1 @@
-## What do I look like? A JOKE MACHINE!?
+## Whoever invented the knock-knock joke should get a no bell prize.
