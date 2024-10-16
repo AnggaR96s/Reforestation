@@ -1,1 +1,1 @@
-## Whats a penguins favorite relative? Aunt Arctica.
+## What do I look like? A JOKE MACHINE!?
