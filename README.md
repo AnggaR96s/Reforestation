@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## Why can't a bicycle stand on its own? It's two-tired.
