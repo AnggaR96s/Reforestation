@@ -1,1 +1,1 @@
-## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
