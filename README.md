@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## What did the sea say to the sand? "We have to stop meeting like this."
