@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## What time did the man go to the dentist? Tooth hurt-y.
