@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
