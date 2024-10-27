@@ -1,1 +1,1 @@
-## I went on a date last night with a girl from the zoo. It was great. She’s a keeper.
+## Where do you take someone who has been injured in a Peek-a-boo accident? To the I.C.U.
