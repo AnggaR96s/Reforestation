@@ -1,1 +1,1 @@
-## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
