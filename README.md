@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
