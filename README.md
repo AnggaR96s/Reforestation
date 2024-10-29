@@ -1,1 +1,1 @@
-## A man tried to sell me a coffin today. I told him that's the last thing I need.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
