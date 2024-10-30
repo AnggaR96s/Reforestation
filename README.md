@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## What do you call a crowd of chess players bragging about their wins in a hotel lobby? Chess nuts boasting in an open foyer.
