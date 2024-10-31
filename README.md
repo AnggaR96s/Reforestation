@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
