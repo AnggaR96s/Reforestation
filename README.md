@@ -1,2 +1,1 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
