@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## I've started telling everyone about the benefits of eating dried grapes. It's all about raisin awareness.
