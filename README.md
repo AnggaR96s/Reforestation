@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## Some people eat light bulbs. They say it's a nice light snack.
