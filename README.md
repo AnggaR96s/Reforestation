@@ -1,1 +1,1 @@
-## Where’s the bin? Dad: I haven’t been anywhere!
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
