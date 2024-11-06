@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## What do you call a nervous javelin thrower? Shakespeare.
