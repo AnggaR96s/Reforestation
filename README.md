@@ -1,1 +1,1 @@
-## What do you call a nervous javelin thrower? Shakespeare.
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
