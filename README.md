@@ -1,1 +1,1 @@
-## What do you call someone with no nose? Nobody knows.
+## Whoever invented the knock-knock joke should get a no bell prize.
