@@ -1,1 +1,1 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
