@@ -1,1 +1,1 @@
-## A magician was driving down the street and then he turned into a driveway.
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
