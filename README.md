@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## Where did Captain Hook get his hook? From a second hand store.
