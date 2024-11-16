@@ -1,1 +1,1 @@
-## As I suspected, someone has been adding soil to my garden. The plot thickens.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
