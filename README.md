@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## I asked the surgeon if I could administer my own anesthetic, they said: go ahead, knock yourself out.
