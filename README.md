@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
