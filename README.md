@@ -1,1 +1,1 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
