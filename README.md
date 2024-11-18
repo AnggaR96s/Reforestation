@@ -1,1 +1,1 @@
-## Past, present, and future walked into a bar.... It was tense.
+## Did you hear about the two thieves who stole a calendar? They each got six months.
