@@ -1,1 +1,1 @@
-## Which side of the chicken has more feathers? The outside.
+## Why do ducks make great detectives? They always quack the case.
