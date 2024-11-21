@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## Why don't sharks eat clowns?  Because they taste funny.
