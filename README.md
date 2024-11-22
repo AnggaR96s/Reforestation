@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## What did the left eye say to the right eye? Between us, something smells!
