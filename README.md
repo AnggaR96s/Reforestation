@@ -1,1 +1,3 @@
-## When is a door not a door? When it's ajar.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
