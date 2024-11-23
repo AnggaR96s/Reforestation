@@ -1,1 +1,1 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## Why do pirates not know the alphabet? They always get stuck at "C".
