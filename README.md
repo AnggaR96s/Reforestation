@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## Why did the sentence fail the driving test? It never came to a full stop.
