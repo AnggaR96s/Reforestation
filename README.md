@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## How do you make holy water? You boil the hell out of it.
