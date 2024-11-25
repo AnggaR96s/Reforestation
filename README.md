@@ -1,1 +1,1 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
