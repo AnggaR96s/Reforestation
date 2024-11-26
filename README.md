@@ -1,1 +1,1 @@
-## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
+## What happens when you anger a brain surgeon? They will give you a piece of your mind.
