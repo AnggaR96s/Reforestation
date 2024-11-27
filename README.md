@@ -1,1 +1,1 @@
-## How does a penguin build it’s house? Igloos it together.
+## Why don’t skeletons ever go trick or treating? Because they have nobody to go with.
