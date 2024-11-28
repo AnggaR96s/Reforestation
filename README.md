@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
