@@ -1,1 +1,1 @@
-## I adopted my dog from a blacksmith. As soon as we got home he made a bolt for the door.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
