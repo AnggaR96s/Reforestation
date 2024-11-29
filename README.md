@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
