@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## Did you know crocodiles could grow up to 15 feet? But most just have 4.
