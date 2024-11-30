@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## I’m only familiar with 25 letters in the English language. I don’t know why.
