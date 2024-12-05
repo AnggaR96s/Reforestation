@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## I knew i shouldn’t have ate that seafood. Because now i’m feeling a little… Eel
