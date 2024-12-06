@@ -1,1 +1,1 @@
-## Want to hear a joke about construction? Nah, I'm still working on it.
+## What creature is smarter than a talking parrot? A spelling bee.
