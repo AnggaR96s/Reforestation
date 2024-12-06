@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## I wouldn't buy anything with velcro. It's a total rip-off.
