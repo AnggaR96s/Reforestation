@@ -1,1 +1,1 @@
-## New atoms frequently lose electrons when they fail to keep an ion them.
+## I thought about going on an all-almond diet. But that's just nuts.
