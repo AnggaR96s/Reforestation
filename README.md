@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## I boiled a funny bone last night and had a laughing stock
