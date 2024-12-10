@@ -1,1 +1,2 @@
-## Why did the clown have neck pain? - Because he slept funny
+## What is the best way to carve?
+## Whittle by whittle.
