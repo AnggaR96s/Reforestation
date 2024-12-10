@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## Why did the clown have neck pain? - Because he slept funny
