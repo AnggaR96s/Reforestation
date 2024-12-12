@@ -1,1 +1,2 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
