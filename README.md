@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
