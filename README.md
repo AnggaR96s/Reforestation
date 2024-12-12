@@ -1,1 +1,1 @@
-## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
+## Our wedding was so beautiful, even the cake was in tiers.
