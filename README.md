@@ -1,1 +1,1 @@
-## A doll was recently found dead in a rice paddy. It's the only known instance of a nick nack paddy wack.
+## Why do wizards clean their teeth three times a day? To prevent bat breath!
