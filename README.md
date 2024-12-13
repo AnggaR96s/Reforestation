@@ -1,1 +1,1 @@
-## Where does batman go to the bathroom? The batroom.
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
