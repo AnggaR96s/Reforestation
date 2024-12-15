@@ -1,1 +1,1 @@
-## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
+## Two fish are in a tank, one turns to the other and says, "how do you drive this thing?"
