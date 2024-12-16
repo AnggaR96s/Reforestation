@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## What do prisoners use to call each other? Cell phones.
