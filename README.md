@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## Why was the broom late for the meeting? He overswept.
