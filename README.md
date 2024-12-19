@@ -1,1 +1,1 @@
-## Which is the fastest growing city in the world? Dublin'
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
