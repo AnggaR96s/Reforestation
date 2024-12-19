@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## Ever wondered why bees hum? It's because they don't know the words.
