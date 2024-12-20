@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
