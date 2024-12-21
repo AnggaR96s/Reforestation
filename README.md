@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
