@@ -1,1 +1,1 @@
-## Never take advice from electrons. They are always negative.
+## "I'm sorry." "Hi sorry, I'm dad"
