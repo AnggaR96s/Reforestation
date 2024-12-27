@@ -1,1 +1,1 @@
-## What's brown and sticky? A stick.
+## "Dad, I'm hungry." Hello, Hungry. I'm Dad.
