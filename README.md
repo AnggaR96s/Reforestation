@@ -1,1 +1,1 @@
-## What did the sea say to the sand? "We have to stop meeting like this."
+## If at first you don't succeed, sky diving is not for you!
