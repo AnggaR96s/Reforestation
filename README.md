@@ -1,1 +1,1 @@
-## Why do bees have sticky hair? Because they use honey combs!
+## What did the sea say to the sand? "We have to stop meeting like this."
