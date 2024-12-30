@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## How does a French skeleton say hello? Bone-jour.
