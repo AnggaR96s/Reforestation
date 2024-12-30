@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## What did one plate say to the other plate? Dinner is on me!
