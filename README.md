@@ -1,1 +1,1 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## What kind of dinosaur loves to sleep? A stega-snore-us.
