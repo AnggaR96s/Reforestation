@@ -1,1 +1,1 @@
-## What did the late tomato say to the early tomato? I’ll ketch up
+## Who is the coolest Doctor in the hospital? The hip Doctor!
