@@ -1,1 +1,1 @@
-## I'm glad I know sign language, it's pretty handy.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
