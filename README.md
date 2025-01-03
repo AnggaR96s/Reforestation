@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## An apple a day keeps the bullies away. If you throw it hard enough.
