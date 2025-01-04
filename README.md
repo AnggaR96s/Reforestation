@@ -1,1 +1,1 @@
-## I'll tell you what often gets over looked... garden fences.
+## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
