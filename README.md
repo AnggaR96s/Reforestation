@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## This morning I was wondering where the sun was, but then it dawned on me.
