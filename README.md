@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## Did you know that ghosts call their true love their ghoul-friend?
