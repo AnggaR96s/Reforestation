@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
