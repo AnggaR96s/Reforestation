@@ -1,1 +1,1 @@
-## Why don't skeletons ride roller coasters? They don't have the stomach for it.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
