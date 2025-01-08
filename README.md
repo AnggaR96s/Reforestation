@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## My dentist is the best, he even has a little plaque!
