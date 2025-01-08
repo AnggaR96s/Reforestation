@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## How do you get two whales in a car? Start in England and drive West.
