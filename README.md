@@ -1,2 +1,1 @@
-## What is the least spoken language in the world?
-## Sign Language
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
