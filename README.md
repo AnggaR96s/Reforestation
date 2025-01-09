@@ -1,1 +1,1 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
