@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## What did the grape do when he got stepped on? He let out a little wine.
