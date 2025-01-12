@@ -1,1 +1,1 @@
-## What do you call someone with no nose? Nobody knows.
+## Where do young cows eat lunch? In the calf-ateria.
