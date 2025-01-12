@@ -1,1 +1,1 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## What do you call a monkey in a mine field? A babooooom!
