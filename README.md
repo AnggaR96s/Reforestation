@@ -1,1 +1,1 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## A boy dug three holes in the yard. When his mother saw, she exclaimed: "well, well, well"
