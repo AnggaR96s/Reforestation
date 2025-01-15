@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
