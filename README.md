@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
