@@ -1,1 +1,1 @@
-## Have you heard about corduroy pillows?  They're making headlines!
+## “My Dog has no nose.” “How does he smell?” “Awful”
