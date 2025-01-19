@@ -1,1 +1,1 @@
-## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
