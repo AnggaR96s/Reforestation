@@ -1,1 +1,1 @@
-## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
+## I was at the library and asked if they have any books on "paranoia", the librarian replied, "yes, they are right behind you"
