@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
