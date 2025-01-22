@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
