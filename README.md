@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## Want to hear my pizza joke? Never mind, it's too cheesy.
