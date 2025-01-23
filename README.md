@@ -1,1 +1,1 @@
-## A steak pun is a rare medium well done.
+## What do you call a cow with two legs? Lean beef.
