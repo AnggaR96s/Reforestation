@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## A steak pun is a rare medium well done.
