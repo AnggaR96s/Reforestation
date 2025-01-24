@@ -1,1 +1,1 @@
-## A girl once asked me what my heart desired, apparently blood, oxygen and neural messages were all wrong answers
+## Why does Superman get invited to dinners? Because he is a Supperhero.
