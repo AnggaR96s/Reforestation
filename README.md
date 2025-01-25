@@ -1,1 +1,1 @@
-## Toasters were the first form of pop-up notifications.
+## Why didn’t the orange win the race? It ran out of juice.
