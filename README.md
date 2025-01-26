@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## Have you heard about corduroy pillows?  They're making headlines!
