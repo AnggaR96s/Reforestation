@@ -1,1 +1,1 @@
-## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
