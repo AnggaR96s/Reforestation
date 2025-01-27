@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## Where’s the bin? Dad: I haven’t been anywhere!
