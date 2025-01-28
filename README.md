@@ -1,1 +1,1 @@
-## I was going to learn how to juggle, but I didn't have the balls.
+## What do you call a dictionary on drugs? High definition.
