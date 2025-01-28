@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## How do you make Lady Gaga cry? Poker face. 
