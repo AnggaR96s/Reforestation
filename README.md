@@ -1,1 +1,1 @@
-## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
