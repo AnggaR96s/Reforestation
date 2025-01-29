@@ -1,1 +1,1 @@
-## There's not really any training for garbagemen. They just pick things up as they go.
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
