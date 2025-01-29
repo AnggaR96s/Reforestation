@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## There's not really any training for garbagemen. They just pick things up as they go.
