@@ -1,1 +1,1 @@
-## Why do fish live in salt water? Because pepper makes them sneeze!
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
