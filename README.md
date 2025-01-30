@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## If at first you don't succeed, sky diving is not for you!
