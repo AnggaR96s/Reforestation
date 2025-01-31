@@ -1,1 +1,1 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
