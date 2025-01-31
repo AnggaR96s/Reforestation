@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
