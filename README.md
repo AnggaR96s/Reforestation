@@ -1,1 +1,1 @@
-## How do locomotives know where they're going? Lots of training
+## Where do rabbits go after they get married? On a bunny-moon.
