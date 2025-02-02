@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
