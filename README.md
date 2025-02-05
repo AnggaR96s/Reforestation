@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## Why do bananas have to put on sunscreen before they go to the beach? Because they might peel!
