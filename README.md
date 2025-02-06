@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## What do you call a boy who stopped digging holes? Douglas.
