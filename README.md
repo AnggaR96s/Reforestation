@@ -1,1 +1,1 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
