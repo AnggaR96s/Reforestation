@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
