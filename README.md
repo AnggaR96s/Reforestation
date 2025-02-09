@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
