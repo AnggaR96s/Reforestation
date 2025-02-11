@@ -1,1 +1,1 @@
-## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
+## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
