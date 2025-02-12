@@ -1,1 +1,1 @@
-## I asked a frenchman if he played video games. He said "Wii"
+## This furniture store keeps emailing me, all I wanted was one night stand!
