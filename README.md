@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## Atheism is a non-prophet organisation.
