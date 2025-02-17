@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
