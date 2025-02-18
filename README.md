@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
