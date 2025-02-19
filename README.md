@@ -1,1 +1,1 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
