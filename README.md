@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
