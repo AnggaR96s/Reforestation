@@ -1,1 +1,1 @@
-## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
+## There's not really any training for garbagemen. They just pick things up as they go.
