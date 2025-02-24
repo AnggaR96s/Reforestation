@@ -1,1 +1,1 @@
-## I just got fired from a florist, apparently I took too many leaves.
+## "I'll call you later." Don't call me later, call me Dad.
