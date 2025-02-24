@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
