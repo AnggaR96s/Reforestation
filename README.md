@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
