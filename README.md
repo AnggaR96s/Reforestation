@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## I used to be addicted to soap, but I'm clean now.
