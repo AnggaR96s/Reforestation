@@ -1,1 +1,1 @@
-## What is a witch's favorite subject in school? Spelling!
+## What do you get when you cross a snowman with a vampire? Frostbite.
