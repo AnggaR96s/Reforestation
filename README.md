@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
