@@ -1,1 +1,1 @@
-## Want to hear a chimney joke? Got stacks of em! First one's on the house
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
