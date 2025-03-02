@@ -1,1 +1,1 @@
-## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
