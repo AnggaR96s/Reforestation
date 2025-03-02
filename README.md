@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## How did Darth Vader know what Luke was getting for Christmas? He felt his presents.
