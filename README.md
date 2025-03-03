@@ -1,1 +1,1 @@
-## Where does astronauts hangout after work? At the spacebar.
+## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
