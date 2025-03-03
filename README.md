@@ -1,1 +1,1 @@
-## Why are giraffes so slow to apologize? Because it takes them a long time to swallow their pride.
+## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
