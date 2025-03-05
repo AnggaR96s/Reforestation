@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## I tried to write a chemistry joke, but could never get a reaction.
