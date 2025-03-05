@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## Remember, the best angle to approach a problem from is the "try" angle.
