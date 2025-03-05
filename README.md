@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## What does an angry pepper do? It gets jalapeño face.
