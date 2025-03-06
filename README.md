@@ -1,1 +1,1 @@
-## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
+## A farmer had 297 cows, when he rounded them up, he found he had 300
