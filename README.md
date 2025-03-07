@@ -1,1 +1,1 @@
-## Why do cows wear bells? Because their horns don't work.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
