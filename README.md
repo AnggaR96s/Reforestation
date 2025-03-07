@@ -1,1 +1,2 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
