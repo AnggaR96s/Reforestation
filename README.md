@@ -1,2 +1,1 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
