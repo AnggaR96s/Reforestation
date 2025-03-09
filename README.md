@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## What did the sea say to the sand? "We have to stop meeting like this."
