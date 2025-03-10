@@ -1,1 +1,1 @@
-## How are false teeth like stars? They come out at night!
+## Don't trust atoms. They make up everything.
