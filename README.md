@@ -1,1 +1,1 @@
-## What do you call a duck that gets all A's? A wise quacker.
+## How are false teeth like stars? They come out at night!
