@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## I made a belt out of watches once... It was a waist of time.
