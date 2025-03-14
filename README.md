@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
