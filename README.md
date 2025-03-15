@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
