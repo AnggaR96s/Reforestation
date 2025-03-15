@@ -1,1 +1,1 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
