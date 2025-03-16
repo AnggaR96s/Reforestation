@@ -1,1 +1,1 @@
-## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
