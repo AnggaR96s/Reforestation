@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## I was in an 80's band called the prevention. We were better than the cure.
