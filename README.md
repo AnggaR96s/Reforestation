@@ -1,1 +1,1 @@
-## Dermatologists are always in a hurry. They spend all day making rash decisions. 
+## Recent survey revealed 6 out of 7 dwarf's aren't happy.
