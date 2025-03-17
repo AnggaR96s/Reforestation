@@ -1,1 +1,1 @@
-## Recent survey revealed 6 out of 7 dwarf's aren't happy.
+## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
