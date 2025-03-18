@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## I was wondering why the frisbee was getting bigger, then it hit me.
