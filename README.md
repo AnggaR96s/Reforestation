@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
