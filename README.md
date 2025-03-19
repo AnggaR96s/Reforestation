@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
