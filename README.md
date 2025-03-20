@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
