@@ -1,1 +1,1 @@
-## What concert costs only 45 cents? 50 cent featuring Nickelback.
+## When does a joke become a dad joke? When it becomes apparent.
