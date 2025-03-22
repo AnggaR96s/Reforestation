@@ -1,1 +1,1 @@
-## What do you call an Argentinian with a rubber toe? Roberto
+## What was a more important invention than the first telephone? The second one.
