@@ -1,1 +1,1 @@
-## Have you heard about the film "Constipation", you probably haven't because it's not out yet.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
