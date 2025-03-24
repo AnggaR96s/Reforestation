@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## What do you call an elephant that doesn’t matter? An irrelephant.
