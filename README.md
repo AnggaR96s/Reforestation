@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## Did you know Albert Einstein was a real person? All this time, I thought he was just a theoretical physicist!
