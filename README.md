@@ -1,1 +1,2 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
