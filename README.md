@@ -1,1 +1,1 @@
-## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
+## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
