@@ -1,1 +1,1 @@
-## What's a ninja's favorite type of shoes? Sneakers!
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
