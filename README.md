@@ -1,1 +1,1 @@
-## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
