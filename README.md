@@ -1,1 +1,1 @@
-## Parallel lines have so much in common. It’s a shame they’ll never meet.
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
