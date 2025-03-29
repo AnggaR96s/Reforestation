@@ -1,1 +1,1 @@
-## As I suspected, someone has been adding soil to my garden. The plot thickens.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
