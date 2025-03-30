@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## Why are mummys scared of vacation? They're afraid to unwind.
