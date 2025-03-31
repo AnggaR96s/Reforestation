@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## How do you find Will Smith in the snow?  Look for fresh prints.
