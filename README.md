@@ -1,1 +1,1 @@
-## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
+## What's a ninja's favorite type of shoes? Sneakers!
