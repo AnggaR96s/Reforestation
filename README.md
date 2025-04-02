@@ -1,1 +1,1 @@
-## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
