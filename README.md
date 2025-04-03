@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
