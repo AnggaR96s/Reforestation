@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## Where do sheep go to get their hair cut? The baa-baa shop.
