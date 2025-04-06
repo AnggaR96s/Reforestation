@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## I decided to sell my Hoover… well it was just collecting dust.
