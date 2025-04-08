@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## Why are skeletons so calm? Because nothing gets under their skin.
