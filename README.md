@@ -1,1 +1,1 @@
-## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
