@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
