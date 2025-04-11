@@ -1,1 +1,1 @@
-## What do you call a dictionary on drugs? High definition.
+## Our wedding was so beautiful, even the cake was in tiers.
