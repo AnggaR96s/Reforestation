@@ -1,1 +1,1 @@
-## What do you get hanging from Apple trees? Sore arms.
+## What is the hardest part about sky diving? The ground.
