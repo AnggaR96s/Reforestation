@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## Why do bees have sticky hair? Because they use honey combs!
