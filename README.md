@@ -1,1 +1,1 @@
-## What does a female snake use for support? A co-Bra!
+## It doesn't matter how much you push the envelope. It will still be stationary.
