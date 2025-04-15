@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## What did the big flower say to the littler flower? Hi, bud!
