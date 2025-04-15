@@ -1,1 +1,1 @@
-## Why do bees hum? Because they don't know the words.
+## I got fired from a florist, apparently I took too many leaves.
