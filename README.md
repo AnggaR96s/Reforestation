@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## Why do bees hum? Because they don't know the words.
