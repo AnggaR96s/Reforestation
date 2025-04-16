@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## Don't trust atoms. They make up everything.
