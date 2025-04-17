@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## What do you get when you cross a rabbit with a water hose? Hare spray.
