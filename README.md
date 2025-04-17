@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
