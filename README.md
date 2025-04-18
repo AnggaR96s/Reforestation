@@ -1,1 +1,1 @@
-## No matter how kind you are, German children are kinder.
+## A cannibal is someone who is fed up with people.
