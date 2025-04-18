@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
