@@ -1,1 +1,1 @@
-## Why can't your nose be 12 inches long? Because then it'd be a foot!
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
