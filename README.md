@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
