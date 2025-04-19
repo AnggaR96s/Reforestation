@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
