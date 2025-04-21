@@ -1,1 +1,1 @@
-## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
