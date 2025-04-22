@@ -1,1 +1,2 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## Q: What did the spaghetti say to the other spaghetti?
+## A: Pasta la vista, baby!
