@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## Why do crabs never give to charity? Because they’re shellfish.
