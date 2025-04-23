@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
