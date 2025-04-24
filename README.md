@@ -1,1 +1,1 @@
-## Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
+## Today a man knocked on my door and asked for a small donation towards the local swimming pool. I gave him a glass of water.
