@@ -1,1 +1,2 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
