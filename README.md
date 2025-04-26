@@ -1,1 +1,1 @@
-## Why does Han Solo like gum? It's chewy!
+## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
