@@ -1,1 +1,1 @@
-## I had a pair of racing snails. I removed their shells to make them more aerodynamic, but they became sluggish.
+## Why did the man put his money in the freezer? He wanted cold hard cash!
