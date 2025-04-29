@@ -1,1 +1,1 @@
-## what happens when you cross a sheep with a kangaroo ? A woolly jumper!
+## How come the stadium got hot after the game? Because all of the fans left.
