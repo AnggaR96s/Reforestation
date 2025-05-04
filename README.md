@@ -1,1 +1,1 @@
-## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
+## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
