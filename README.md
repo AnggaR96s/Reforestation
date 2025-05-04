@@ -1,1 +1,1 @@
-## A horse walks into a bar. The bar tender says "Hey." The horse says "Sure."
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
