@@ -1,1 +1,1 @@
-## Some people eat light bulbs. They say it's a nice light snack.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
