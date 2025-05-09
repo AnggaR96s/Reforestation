@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## Have you heard of the band 1023MB? They haven't got a gig yet.
