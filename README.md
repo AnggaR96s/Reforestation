@@ -1,1 +1,1 @@
-## Have you heard of the band 1023MB? They haven't got a gig yet.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
