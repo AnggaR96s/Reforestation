@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## Don't tell secrets in corn fields. Too many ears around.
