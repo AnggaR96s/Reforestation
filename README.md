@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
