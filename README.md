@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
