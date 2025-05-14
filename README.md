@@ -1,1 +1,1 @@
-## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
+## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
