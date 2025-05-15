@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## What do you do when your bunny gets wet? You get your hare dryer.
