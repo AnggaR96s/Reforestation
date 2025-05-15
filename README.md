@@ -1,1 +1,1 @@
-## What do you call a snake who builds houses? A boa constructor!
+## What kind of pants do ghosts wear? Boo jeans.
