@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## Why did the octopus beat the shark in a fight? Because it was well armed.
