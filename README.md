@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## To the guy who invented zero... thanks for nothing.
