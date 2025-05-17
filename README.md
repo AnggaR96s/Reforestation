@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## Why did the sentence fail the driving test? It never came to a full stop.
