@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
