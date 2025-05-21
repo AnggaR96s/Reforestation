@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
