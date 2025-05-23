@@ -1,1 +1,2 @@
-## Why was the robot angry? Because someone kept pressing his buttons!
+## What's large, grey, and doesn't matter?
+## An irrelephant.
