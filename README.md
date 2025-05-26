@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## Me and my mates are in a band called Duvet. We're a cover band.
