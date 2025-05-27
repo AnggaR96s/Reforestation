@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## What do you call a nervous javelin thrower? Shakespeare.
