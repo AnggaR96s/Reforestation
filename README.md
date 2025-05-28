@@ -1,1 +1,1 @@
-## Why are snake races so exciting? They're always neck and neck.
+## There's not really any training for garbagemen. They just pick things up as they go.
