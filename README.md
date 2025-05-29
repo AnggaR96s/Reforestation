@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
