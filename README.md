@@ -1,1 +1,1 @@
-## what happens when you cross a sheep with a kangaroo ? A woolly jumper!
+## What does a clock do when it's hungry? It goes back four seconds!
