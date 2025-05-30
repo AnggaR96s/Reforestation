@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
