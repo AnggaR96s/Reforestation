@@ -1,1 +1,1 @@
-## What does a clock do when it's hungry? It goes back four seconds!
+## My boss told me to have a good day... so I went home.
