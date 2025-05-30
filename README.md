@@ -1,1 +1,1 @@
-## Why does Norway have barcodes on their battleships? So when they get back to port, they can Scandinavian.
+## what happens when you cross a sheep with a kangaroo ? A woolly jumper!
