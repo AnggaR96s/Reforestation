@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## Why did the kid cross the playground? To get to the other slide.
