@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## A bartender broke up with her boyfriend, but he kept asking her for another shot.
