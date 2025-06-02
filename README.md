@@ -1,1 +1,2 @@
-## I got fired from a florist, apparently I took too many leaves.
+## What do you do when you see a space man?
+## Park your car, man.
