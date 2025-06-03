@@ -1,1 +1,2 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
