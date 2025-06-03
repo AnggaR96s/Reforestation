@@ -1,1 +1,1 @@
-## Have you heard the story about the magic tractor? It drove down the road and turned into a field.
+## So, I heard this pun about cows, but it’s kinda offensive so I won’t say it. I don’t want there to be any beef between us. 
