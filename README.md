@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## My first time using an elevator was an uplifting experience. The second time let me down.
