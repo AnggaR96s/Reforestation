@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## Where do young cows eat lunch? In the calf-ateria.
