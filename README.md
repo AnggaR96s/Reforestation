@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## Where do hamburgers go to dance? The meat-ball.
