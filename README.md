@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## A termite walks into a bar and asks “Is the bar tender here?”
