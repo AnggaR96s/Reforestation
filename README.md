@@ -1,1 +1,1 @@
-## Why did the cookie cry? It was feeling crumby.
+## Our wedding was so beautiful, even the cake was in tiers.
