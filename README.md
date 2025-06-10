@@ -1,1 +1,1 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## Where did Captain Hook get his hook? From a second hand store.
