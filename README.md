@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## What has ears but cannot hear? A field of corn.
