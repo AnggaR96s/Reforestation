@@ -1,1 +1,1 @@
-## What do you call a troublesome Canadian high schooler? A poutine.
+## Why can't you use "Beef stew" as a password? Because it's not stroganoff.
