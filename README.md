@@ -1,1 +1,1 @@
-## I just broke my guitar. It's okay, I won't fret
+## How many hipsters does it take to change a lightbulb? Oh, it's a really obscure number. You've probably never heard of it.
