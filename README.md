@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## Waking up this morning was an eye-opening experience.
