@@ -1,1 +1,1 @@
-## Did you know crocodiles could grow up to 15 feet? But most just have 4.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
