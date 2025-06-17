@@ -1,1 +1,1 @@
-## When do doctors get angry? When they run out of patients.
+## What kind of dinosaur loves to sleep? A stega-snore-us.
