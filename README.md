@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
