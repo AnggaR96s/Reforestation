@@ -1,1 +1,1 @@
-## Did you hear about the guy who invented Lifesavers? They say he made a mint.
+## I cut my finger chopping cheese, but I think that I may have grater problems.
