@@ -1,1 +1,1 @@
-## What do you call a criminal going down the stairs? Condescending
+## I gave all my dead batteries away today, free of charge.
