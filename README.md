@@ -1,1 +1,1 @@
-## What kind of pants do ghosts wear? Boo jeans.
+## What's red and bad for your teeth? A Brick.
