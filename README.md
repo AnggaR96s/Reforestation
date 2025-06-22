@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## What kind of pants do ghosts wear? Boo jeans.
