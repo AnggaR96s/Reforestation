@@ -1,1 +1,1 @@
-## Our wedding was so beautiful, even the cake was in tiers.
+## I met this girl on a dating site and, I don't know, we just clicked.
