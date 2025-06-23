@@ -1,1 +1,1 @@
-## I used to be addicted to soap, but I'm clean now.
+## Our wedding was so beautiful, even the cake was in tiers.
