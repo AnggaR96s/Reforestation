@@ -1,1 +1,1 @@
-## Someone asked me to name two structures that hold water. I said "Well dam"
+## Slept like a log last night … woke up in the fireplace.
