@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## Someone asked me to name two structures that hold water. I said "Well dam"
