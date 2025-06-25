@@ -1,1 +1,1 @@
-## Every night at 11:11, I make a wish that someone will come fix my broken clock.
+## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
