@@ -1,1 +1,1 @@
-## Nurse: Doctor, there's a patient that says he's invisible. Doctor: Well, tell him I can't see him right now!
+## Why did the m&m go to school? Because it wanted to be a Smartie!
