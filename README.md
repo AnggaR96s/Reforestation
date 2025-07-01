@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## Sometimes I tuck my knees into my chest and lean forward.  That’s just how I roll.
