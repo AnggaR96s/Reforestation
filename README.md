@@ -1,1 +1,1 @@
-## Why do nurses carry around red crayons? Sometimes they need to draw blood.
+## Why is the new Kindle screen textured to look like paper? So you feel write at home.
