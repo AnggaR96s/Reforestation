@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
