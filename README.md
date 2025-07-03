@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## How many bones are in the human hand? A handful of them.
