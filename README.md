@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## What do you call a fake noodle? An impasta.
