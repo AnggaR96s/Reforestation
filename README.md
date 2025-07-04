@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## What did one plate say to the other plate? Dinner is on me!
