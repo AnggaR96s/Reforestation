@@ -1,1 +1,1 @@
-## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
