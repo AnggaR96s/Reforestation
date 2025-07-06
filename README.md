@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## I accidentally took my cats meds last night. Don’t ask meow.
