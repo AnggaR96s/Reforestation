@@ -1,1 +1,1 @@
-## I accidentally took my cats meds last night. Don’t ask meow.
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
