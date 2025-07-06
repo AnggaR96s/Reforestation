@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
