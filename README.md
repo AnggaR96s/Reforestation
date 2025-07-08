@@ -1,1 +1,1 @@
-## Why do you never see elephants hiding in trees? Because they're so good at it.
+## What did Yoda say when he saw himself in 4K? "HDMI"
