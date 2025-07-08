@@ -1,1 +1,1 @@
-## I have the heart of a lion... and a lifetime ban from the San Diego Zoo.
+## Why do you never see elephants hiding in trees? Because they're so good at it.
