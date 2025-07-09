@@ -1,1 +1,1 @@
-## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
+## I wish I could clean mirrors for a living. It's just something I can see myself doing.
