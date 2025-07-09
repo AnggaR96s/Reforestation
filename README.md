@@ -1,1 +1,1 @@
-## What did Yoda say when he saw himself in 4K? "HDMI"
+## I was wondering why the frisbee was getting bigger, then it hit me.
