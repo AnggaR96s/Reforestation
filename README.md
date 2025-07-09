@@ -1,1 +1,1 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
