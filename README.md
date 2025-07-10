@@ -1,1 +1,1 @@
-## I wish I could clean mirrors for a living. It's just something I can see myself doing.
+## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
