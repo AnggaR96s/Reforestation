@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## What creature is smarter than a talking parrot? A spelling bee.
