@@ -1,1 +1,1 @@
-## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
+## What do you get if you cross a turkey with a ghost? A poultry-geist!
