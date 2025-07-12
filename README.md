@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## If you want a job in the moisturizer industry, the best advice I can give is to apply daily.
