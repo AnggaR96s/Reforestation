@@ -1,1 +1,1 @@
-## What do you get if you cross a turkey with a ghost? A poultry-geist!
+## I used to work in a shoe recycling shop. It was sole destroying.
