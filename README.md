@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## What did the left eye say to the right eye? Between us, something smells!
