@@ -1,1 +1,1 @@
-## What did the left eye say to the right eye? Between us, something smells!
+## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
