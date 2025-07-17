@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Geology rocks, but Geography is where it's at!
