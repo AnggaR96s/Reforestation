@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
