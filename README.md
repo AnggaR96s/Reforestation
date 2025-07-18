@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## No matter how kind you are, German children are kinder.
