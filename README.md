@@ -1,1 +1,1 @@
-## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
