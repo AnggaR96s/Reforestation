@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## Why did the sentence fail the driving test? It never came to a full stop.
