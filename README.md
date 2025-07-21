@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
