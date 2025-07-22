@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
