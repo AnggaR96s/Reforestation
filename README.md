@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
