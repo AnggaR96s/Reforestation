@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## How do you make Lady Gaga cry? Poker face. 
