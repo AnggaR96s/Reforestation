@@ -1,1 +1,1 @@
-## How do you organize a space party? You planet.
+## Chances are if you' ve seen one shopping center, you've seen a mall.
