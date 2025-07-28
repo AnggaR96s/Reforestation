@@ -1,1 +1,1 @@
-## What happens to a frog's car when it breaks down? It gets toad.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
