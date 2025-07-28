@@ -1,1 +1,1 @@
-## I burned 2000 calories today, I left my food in the oven for too long.
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
