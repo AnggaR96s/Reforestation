@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## Yesterday a clown held a door open for me. I thought it was a nice jester.
