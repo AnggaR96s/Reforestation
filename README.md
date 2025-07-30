@@ -1,1 +1,1 @@
-## Yesterday a clown held a door open for me. I thought it was a nice jester.
+## In the news a courtroom artist was arrested today, I'm not surprised, he always seemed sketchy.
