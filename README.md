@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## What do you call a fat psychic? A four-chin teller.
