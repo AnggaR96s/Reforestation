@@ -1,1 +1,1 @@
-## Why did the feline fail the lie detector test? Because he be lion.
+## Why couldn't the lifeguard save the hippie? He was too far out, man.
