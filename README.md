@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Why did the melons plan a big wedding? Because they cantaloupe!
