@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## Why did the feline fail the lie detector test? Because he be lion.
