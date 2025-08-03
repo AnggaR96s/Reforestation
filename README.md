@@ -1,1 +1,1 @@
-## I ordered a chicken and an egg from Amazon. I'll let you know.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
