@@ -1,1 +1,1 @@
-## What is the tallest building in the world? The library – it’s got the most stories!
+## What do computers and air conditioners have in common? They both become useless when you open windows.
