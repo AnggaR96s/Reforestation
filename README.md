@@ -1,1 +1,1 @@
-## Why can't a bicycle stand on its own? It's two-tired.
+## A cannibal is someone who is fed up with people.
