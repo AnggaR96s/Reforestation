@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## What did one snowman say to the other snow man? Do you smell carrot?
