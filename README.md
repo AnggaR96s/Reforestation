@@ -1,1 +1,1 @@
-## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
