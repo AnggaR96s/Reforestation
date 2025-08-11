@@ -1,1 +1,1 @@
-## How do you fix a broken pizza? With tomato paste.
+## Why do nurses carry around red crayons? Sometimes they need to draw blood.
