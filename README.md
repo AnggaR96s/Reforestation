@@ -1,1 +1,1 @@
-## Where’s the bin? Dad: I haven’t been anywhere!
+## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
