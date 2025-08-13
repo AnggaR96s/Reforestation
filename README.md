@@ -1,1 +1,3 @@
-## When will the little snake arrive? I don't know but he won't be long...
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
