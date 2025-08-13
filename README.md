@@ -1,1 +1,1 @@
-## You can't trust a ladder. It will always let you down
+## What does an angry pepper do? It gets jalapeño face.
