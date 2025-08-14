@@ -1,1 +1,1 @@
-## I don't trust stairs. They're always up to something.
+## What did the mountain climber name his son? Cliff.
