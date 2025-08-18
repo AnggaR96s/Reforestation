@@ -1,1 +1,1 @@
-## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
+## What happens to a frog's car when it breaks down? It gets toad.
