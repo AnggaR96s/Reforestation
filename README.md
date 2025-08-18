@@ -1,1 +1,1 @@
-## What happens to a frog's car when it breaks down? It gets toad.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
