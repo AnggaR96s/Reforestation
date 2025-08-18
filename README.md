@@ -1,1 +1,1 @@
-## I knew a guy who collected candy canes, they were all in mint condition
+## I went to a book store and asked the saleswoman where the Self Help section was, she said if she told me it would defeat the purpose.
