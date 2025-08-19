@@ -1,1 +1,1 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## What does a pirate pay for his corn? A buccaneer!
