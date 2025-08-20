@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## Ever wondered why bees hum? It's because they don't know the words.
