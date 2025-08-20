@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## My boss told me to have a good day... so I went home.
