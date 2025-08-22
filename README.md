@@ -1,1 +1,1 @@
-## Why couldn't the lifeguard save the hippie? He was too far out, man.
+## Why does Superman get invited to dinners? Because he is a Supperhero.
