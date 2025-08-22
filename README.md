@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## Why do pirates not know the alphabet? They always get stuck at "C".
