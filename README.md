@@ -1,1 +1,1 @@
-## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
