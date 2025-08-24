@@ -1,2 +1,1 @@
-## What did the hat say to the scarf?
-## You can hang around. I'll just go on ahead.
+## What did the drummer name her twin daughters? Anna One, Anna Two...
