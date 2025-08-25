@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## What concert costs only 45 cents? 50 cent featuring Nickelback.
