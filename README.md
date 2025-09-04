@@ -1,1 +1,1 @@
-## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
+## To the person who stole my anti-depressant pills: I hope you're happy now.
