@@ -1,1 +1,1 @@
-## What kind of tree fits in your hand? A palm tree!
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
