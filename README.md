@@ -1,1 +1,1 @@
-## To the person who stole my anti-depressant pills: I hope you're happy now.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
