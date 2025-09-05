@@ -1,1 +1,1 @@
-## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
+## I’ve got this disease where I can’t stop making airport puns. The doctor says it terminal.
