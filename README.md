@@ -1,1 +1,2 @@
-## What do you call a fat psychic? A four-chin teller.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
