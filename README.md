@@ -1,1 +1,1 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## What did Michael Jackson name his denim store?    Billy Jeans!
