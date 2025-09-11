@@ -1,1 +1,1 @@
-## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
