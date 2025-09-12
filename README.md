@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## What do you call an eagle who can play the piano? Talonted!
