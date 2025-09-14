@@ -1,1 +1,2 @@
-## Egyptians claimed to invent the guitar, but they were such lyres.﻿
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
