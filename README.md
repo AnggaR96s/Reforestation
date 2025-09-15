@@ -1,1 +1,1 @@
-## What kind of dinosaur loves to sleep? A stega-snore-us.
+## New atoms frequently lose electrons when they fail to keep an ion them.
