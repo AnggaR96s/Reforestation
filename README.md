@@ -1,1 +1,1 @@
-## What do you call a dad that has fallen through the ice? A Popsicle.
+## What kind of dinosaur loves to sleep? A stega-snore-us.
