@@ -1,1 +1,1 @@
-## Have you heard about the owl sanctuary job opening? It’s all night shifts but they’re all a hoot over there.
+## What did the ocean say to the shore? Nothing, it just waved.
