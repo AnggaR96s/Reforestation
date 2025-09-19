@@ -1,1 +1,1 @@
-## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
+## The word queue is ironic. It's just q with a bunch of silent letters waiting in line.
