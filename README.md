@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## What don't watermelons get married? Because they cantaloupe.
