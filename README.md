@@ -1,1 +1,1 @@
-## Geology rocks, but Geography is where it's at!
+## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
