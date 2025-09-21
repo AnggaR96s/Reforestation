@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## Atheism is a non-prophet organisation.
