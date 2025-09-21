@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## Geology rocks, but Geography is where it's at!
