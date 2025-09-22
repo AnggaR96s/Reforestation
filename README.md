@@ -1,1 +1,1 @@
-## Why do valley girls hang out in odd numbered groups? Because they can't even.
+## What kind of dinosaur loves to sleep? A stega-snore-us.
