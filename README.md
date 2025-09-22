@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
