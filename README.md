@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## Two dyslexics walk into a bra.
