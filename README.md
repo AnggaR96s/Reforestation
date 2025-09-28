@@ -1,1 +1,2 @@
-## I couldn't get a reservation at the library. They were completely booked.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
