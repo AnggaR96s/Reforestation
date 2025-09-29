@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
