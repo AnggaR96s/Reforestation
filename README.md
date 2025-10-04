@@ -1,1 +1,1 @@
-## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
+## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
