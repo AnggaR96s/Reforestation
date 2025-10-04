@@ -1,1 +1,1 @@
-## I was wondering why the frisbee was getting bigger, then it hit me.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
