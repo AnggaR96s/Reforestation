@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## I'd like to start a diet, but I've got too much on my plate right now.
