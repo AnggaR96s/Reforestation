@@ -1,1 +1,1 @@
-## I'd like to start a diet, but I've got too much on my plate right now.
+## Did you hear about the guy who invented Lifesavers? They say he made a mint.
