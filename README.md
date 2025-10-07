@@ -1,1 +1,1 @@
-## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
+## It's been months since I bought the book "how to scam people online". It still hasn't turned up.
