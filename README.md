@@ -1,1 +1,1 @@
-## Animal Fact #25: Most bobcats are not named bob.
+## I asked a frenchman if he played video games. He said "Wii"
