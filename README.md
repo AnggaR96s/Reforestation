@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
