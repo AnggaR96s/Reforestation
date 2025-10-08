@@ -1,1 +1,1 @@
-## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
+## What did Romans use to cut pizza before the rolling cutter was invented? Lil Caesars
