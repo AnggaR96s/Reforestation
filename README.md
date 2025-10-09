@@ -1,1 +1,1 @@
-## What do you call a cow with two legs? Lean beef.
+## I wouldn't buy anything with velcro. It's a total rip-off.
