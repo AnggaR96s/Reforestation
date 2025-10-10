@@ -1,3 +1,1 @@
-## What's the worst part about being a cross-eyed teacher?
-## 
-## They can't control their pupils.
+## My friend said to me: "What rhymes with orange" I said: "no it doesn't"
