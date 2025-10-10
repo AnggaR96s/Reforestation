@@ -1,1 +1,3 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
