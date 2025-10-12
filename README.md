@@ -1,1 +1,1 @@
-## Why don't eggs tell jokes? They'd crack each other up
+## They laughed when I said I wanted to be a comedian – they’re not laughing now.
