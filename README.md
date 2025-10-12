@@ -1,1 +1,1 @@
-## My dentist is the best, he even has a little plaque!
+## Why don't eggs tell jokes? They'd crack each other up
