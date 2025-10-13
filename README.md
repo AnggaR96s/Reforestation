@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## What kind of dinosaur loves to sleep? A stega-snore-us.
