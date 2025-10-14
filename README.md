@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
