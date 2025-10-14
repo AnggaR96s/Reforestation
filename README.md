@@ -1,1 +1,1 @@
-## What time did the man go to the dentist? Tooth hurt-y.
+## No matter how kind you are, German children are kinder.
