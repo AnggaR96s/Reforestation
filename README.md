@@ -1,1 +1,1 @@
-## What do you call a monkey in a mine field? A babooooom!
+## A farmer had 297 cows, when he rounded them up, he found he had 300
