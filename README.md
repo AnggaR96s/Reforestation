@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## What did Romans use to cut pizza before the rolling cutter was invented? Lil Caesars
