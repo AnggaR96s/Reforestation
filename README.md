@@ -1,1 +1,1 @@
-## Every night at 11:11, I make a wish that someone will come fix my broken clock.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
