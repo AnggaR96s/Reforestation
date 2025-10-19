@@ -1,1 +1,1 @@
-## How do you find Will Smith in the snow?  Look for fresh prints.
+## I was in an 80's band called the prevention. We were better than the cure.
