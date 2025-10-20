@@ -1,1 +1,1 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
