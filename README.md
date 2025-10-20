@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## Where did you learn to make ice cream? Sunday school.
