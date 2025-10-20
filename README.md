@@ -1,1 +1,1 @@
-## Why did the girl smear peanut butter on the road? To go with the traffic jam.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
