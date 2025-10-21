@@ -1,1 +1,1 @@
-## Where did you learn to make ice cream? Sunday school.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
