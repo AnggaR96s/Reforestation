@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Don't tell secrets in corn fields. Too many ears around.
