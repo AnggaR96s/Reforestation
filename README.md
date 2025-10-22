@@ -1,1 +1,1 @@
-## My wife said I was immature. So I told her to get out of my fort.
+## How come the stadium got hot after the game? Because all of the fans left.
