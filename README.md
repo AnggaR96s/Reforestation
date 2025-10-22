@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## My wife said I was immature. So I told her to get out of my fort.
