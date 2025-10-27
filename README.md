@@ -1,1 +1,1 @@
-## I used to work for a soft drink can crusher. It was soda pressing.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
