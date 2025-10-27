@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
