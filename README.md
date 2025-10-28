@@ -1,1 +1,1 @@
-## A butcher accidentally backed into his meat grinder and got a little behind in his work that day.
+## Where did Captain Hook get his hook? From a second hand store.
