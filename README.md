@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## You know that cemetery up the road? People are dying to get in there.
