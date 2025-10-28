@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## What do you call a group of killer whales playing instruments? An Orca-stra.
