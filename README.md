@@ -1,1 +1,1 @@
-## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
+## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
