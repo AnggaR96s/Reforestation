@@ -1,1 +1,1 @@
-## You know that cemetery up the road? People are dying to get in there.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
