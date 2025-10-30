@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## I wouldn't buy anything with velcro. It's a total rip-off.
