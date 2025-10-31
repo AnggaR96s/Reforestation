@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## Why do crabs never give to charity? Because they’re shellfish.
