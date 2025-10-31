@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## Where do rabbits go after they get married? On a bunny-moon.
