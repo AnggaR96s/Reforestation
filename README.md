@@ -1,1 +1,1 @@
-## Someone asked me to name two structures that hold water. I said "Well dam"
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
