@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## To the guy who invented zero... thanks for nothing.
