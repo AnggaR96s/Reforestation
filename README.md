@@ -1,1 +1,1 @@
-## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
