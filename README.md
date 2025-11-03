@@ -1,1 +1,1 @@
-## A ghost walks into a bar and asks for a glass of vodka but the bar tender says, “sorry we don’t serve spirits”
+## Hear about the new restaurant called Karma? There’s no menu: You get what you deserve.
