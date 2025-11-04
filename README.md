@@ -1,1 +1,1 @@
-## Why should you never trust a pig with a secret? Because it's bound to squeal.
+## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
