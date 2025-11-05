@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## Who is the coolest Doctor in the hospital? The hip Doctor!
