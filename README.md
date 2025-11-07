@@ -1,2 +1,1 @@
-##  I never wanted to believe that my Dad was stealing from his job as a road worker. But when I got home, all the signs were there.
-## 
+## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
