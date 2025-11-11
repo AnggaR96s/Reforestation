@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## What happens to a frog's car when it breaks down? It gets toad.
