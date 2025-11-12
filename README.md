@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
