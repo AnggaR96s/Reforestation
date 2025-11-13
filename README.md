@@ -1,1 +1,1 @@
-## Have you ever seen fruit preserves being made? It's jarring.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
