@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## Have you ever seen fruit preserves being made? It's jarring.
