@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## This furniture store keeps emailing me, all I wanted was one night stand!
