@@ -1,1 +1,1 @@
-## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
+## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
