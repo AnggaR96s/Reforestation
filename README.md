@@ -1,1 +1,1 @@
-## This furniture store keeps emailing me, all I wanted was one night stand!
+## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
