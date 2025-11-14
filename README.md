@@ -1,1 +1,1 @@
-## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
