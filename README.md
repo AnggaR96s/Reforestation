@@ -1,1 +1,1 @@
-## What do you get when you cross a rabbit with a water hose? Hare spray.
+## Where do sheep go to get their hair cut? The baa-baa shop.
