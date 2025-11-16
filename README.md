@@ -1,1 +1,1 @@
-## What do you call two guys hanging out by your window? Kurt & Rod.
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
