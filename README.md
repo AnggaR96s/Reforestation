@@ -1,1 +1,1 @@
-## The biggest knight at King Arthur's round table was Sir Cumference. He acquired his size from eating too much pi.
+## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
