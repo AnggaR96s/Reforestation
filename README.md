@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
