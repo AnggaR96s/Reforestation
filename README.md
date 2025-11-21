@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## Where do hamburgers go to dance? The meat-ball.
