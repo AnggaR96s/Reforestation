@@ -1,1 +1,1 @@
-## Where do hamburgers go to dance? The meat-ball.
+## What does an angry pepper do? It gets jalapeño face.
