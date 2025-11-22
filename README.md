@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## Why can't a bicycle stand on its own? It's two-tired.
