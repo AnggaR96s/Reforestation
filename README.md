@@ -1,1 +1,1 @@
-## I went to the doctor today and he told me I had type A blood but it was a type O.
+## I tried to write a chemistry joke, but could never get a reaction.
