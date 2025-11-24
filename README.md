@@ -1,1 +1,1 @@
-## Did you know crocodiles could grow up to 15 feet? But most just have 4.
+## "Hey, dad, did you get a haircut?" "No, I got them all cut."
