@@ -1,1 +1,1 @@
-## Where do young cows eat lunch? In the calf-ateria.
+## Why are mummys scared of vacation? They're afraid to unwind.
