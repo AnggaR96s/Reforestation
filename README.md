@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
