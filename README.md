@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
