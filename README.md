@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
