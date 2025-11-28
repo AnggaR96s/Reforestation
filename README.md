@@ -1,1 +1,1 @@
-## What kind of award did the dentist receive? A little plaque.
+## Where do you learn to make banana splits? At sundae school.
