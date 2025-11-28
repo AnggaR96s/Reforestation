@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Why did Sweden start painting barcodes on the sides of their battleships? So they could Scandinavian.
