@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## What did the ocean say to the shore? Nothing, it just waved.
