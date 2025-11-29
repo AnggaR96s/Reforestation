@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## How much does a hipster weigh? An instagram.
