@@ -1,1 +1,1 @@
-## I used to be a banker, but I lost interest.
+## Dad died because he couldn't remember his blood type. I will never forget his last words. Be positive.
