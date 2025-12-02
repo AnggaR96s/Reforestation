@@ -1,1 +1,1 @@
-## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
