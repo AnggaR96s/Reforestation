@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## Why can't eggs have love? They will break up too soon.
