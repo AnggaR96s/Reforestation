@@ -1,1 +1,1 @@
-## Why can't eggs have love? They will break up too soon.
+## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
