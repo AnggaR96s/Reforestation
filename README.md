@@ -1,1 +1,1 @@
-## How many optometrists does it take to change a light bulb? 1 or 2? 1... or 2?
+## Egyptians claimed to invent the guitar, but they were such lyres.﻿
