@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## I used to be a banker, but I lost interest.
