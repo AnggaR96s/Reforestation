@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## I was shocked when I was diagnosed as colorblind... It came out of the purple.
