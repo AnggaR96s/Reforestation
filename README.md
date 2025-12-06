@@ -1,1 +1,1 @@
-## I considered building the patio by myself. But I didn't have the stones.
+## I’m on a whiskey diet. I’ve lost three days already.
