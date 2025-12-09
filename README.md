@@ -1,1 +1,1 @@
-## Dad, can you put my shoes on? I don't think they'll fit me.
+## Why are skeletons so calm? Because nothing gets under their skin.
