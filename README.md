@@ -1,1 +1,1 @@
-## What has three letters and starts with gas? A Car.
+## Why do birds fly south for the winter? Because it's too far to walk.
