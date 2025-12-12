@@ -1,1 +1,1 @@
-## What do you call a crowd of chess players bragging about their wins in a hotel lobby? Chess nuts boasting in an open foyer.
+## Breaking news! Energizer Bunny arrested – charged with battery.
