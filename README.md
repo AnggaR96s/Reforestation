@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
