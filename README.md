@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## Leather is great for sneaking around because it's made of hide.
