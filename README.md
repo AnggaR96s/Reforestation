@@ -1,1 +1,1 @@
-## I gave my friend 10 puns hoping that one of them would make him laugh. Sadly, no pun in ten did.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
