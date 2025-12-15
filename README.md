@@ -1,1 +1,1 @@
-## Leather is great for sneaking around because it's made of hide.
+## Did you hear the one about the giant pickle?  He was kind of a big dill.
