@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## It doesn't matter how much you push the envelope. It will still be stationary.
