@@ -1,1 +1,1 @@
-## What do you call a fish with no eyes? A fsh.
+## Why did the tree go to the dentist? It needed a root canal.
