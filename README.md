@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## I'd like to start a diet, but I've got too much on my plate right now.
