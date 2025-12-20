@@ -1,1 +1,1 @@
-## Animal Fact #25: Most bobcats are not named bob.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
