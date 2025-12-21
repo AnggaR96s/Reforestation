@@ -1,1 +1,1 @@
-## Have you heard about the film "Constipation", you probably haven't because it's not out yet.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
