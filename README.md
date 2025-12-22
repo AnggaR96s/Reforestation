@@ -1,1 +1,1 @@
-## What’s brown and sounds like a bell? Dung!
+## I decided to sell my Hoover… well it was just collecting dust.
