@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## What do you call a fat psychic? A four-chin teller.
