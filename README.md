@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## Have you heard about the owl sanctuary job opening? It’s all night shifts but they’re all a hoot over there.
