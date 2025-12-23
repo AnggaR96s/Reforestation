@@ -1,1 +1,1 @@
-## Why did the octopus beat the shark in a fight? Because it was well armed.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
