@@ -1,1 +1,1 @@
-## What’s the advantage of living in Switzerland? Well, the flag is a big plus.
+## I was thinking about moving to Moscow but there is no point Russian into things.
