@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Ever wondered why bees hum? It's because they don't know the words.
