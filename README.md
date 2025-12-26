@@ -1,1 +1,1 @@
-## What’s E.T. short for? He’s only got little legs.
+## Why did the coffee file a police report? It got mugged.
