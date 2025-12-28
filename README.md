@@ -1,1 +1,1 @@
-## What did one snowman say to the other snow man? Do you smell carrot?
+## Why was the big cat disqualified from the race? Because it was a cheetah.
