@@ -1,1 +1,1 @@
-## I used to work for an origami company but they folded.
+## I decided to sell my Hoover… well it was just collecting dust.
