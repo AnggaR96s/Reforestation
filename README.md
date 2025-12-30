@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
