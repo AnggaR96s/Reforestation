@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## What did the digital clock say to the grandfather clock? Look, no hands!
