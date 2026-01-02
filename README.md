@@ -1,1 +1,1 @@
-## Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
