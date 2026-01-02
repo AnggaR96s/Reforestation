@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
