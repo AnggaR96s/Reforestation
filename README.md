@@ -1,1 +1,1 @@
-## I saw a documentary on TV last night about how they put ships together.  It was rivetting.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
