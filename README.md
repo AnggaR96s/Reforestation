@@ -1,1 +1,1 @@
-## Why does a Moon-rock taste better than an Earth-rock? Because it's a little meteor.
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
