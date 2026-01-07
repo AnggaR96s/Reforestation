@@ -1,1 +1,1 @@
-## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
