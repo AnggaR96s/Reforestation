@@ -1,1 +1,1 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
