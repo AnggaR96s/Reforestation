@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## I had a dream that I was a muffler last night. I woke up exhausted!
