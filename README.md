@@ -1,1 +1,1 @@
-## Why are basketball players messy eaters? Because they are always dribbling.
+## An apple a day keeps the bullies away. If you throw it hard enough.
