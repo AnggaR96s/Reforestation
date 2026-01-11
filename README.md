@@ -1,1 +1,1 @@
-## What did the beaver say to the tree? It's been nice gnawing you.
+## Did you know that ghosts call their true love their ghoul-friend?
