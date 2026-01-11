@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## What did the beaver say to the tree? It's been nice gnawing you.
