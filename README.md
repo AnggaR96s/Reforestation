@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## My wife said I was immature. So I told her to get out of my fort.
