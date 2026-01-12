@@ -1,1 +1,1 @@
-## My wife said I was immature. So I told her to get out of my fort.
+## No matter how kind you are, German children are kinder.
