@@ -1,2 +1,1 @@
-## Why did the cookie cry?
-## Because his mother was a wafer so long
+## What do you call a boy who stopped digging holes? Douglas.
