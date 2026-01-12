@@ -1,1 +1,2 @@
-## No matter how kind you are, German children are kinder.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
