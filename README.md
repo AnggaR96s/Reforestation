@@ -1,1 +1,3 @@
-## What do you call a boy who stopped digging holes? Douglas.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
