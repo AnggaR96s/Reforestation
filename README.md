@@ -1,3 +1,1 @@
-## What is the difference between ignorance and apathy?
-## 
-## I don't know and I don't care.
+## Milk is also the fastest liquid on earth – its pasteurized before you even see it
