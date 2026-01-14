@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## The shovel was a ground-breaking invention.
