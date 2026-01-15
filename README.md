@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
