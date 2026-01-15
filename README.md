@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## Why did the cookie cry? It was feeling crumby.
