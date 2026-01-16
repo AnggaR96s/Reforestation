@@ -1,1 +1,1 @@
-## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
