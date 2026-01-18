@@ -1,1 +1,1 @@
-## When I left school, I passed every one of my exams with the exception of Greek Mythology. It always was my achilles elbow
+## Why was Santa's little helper feeling depressed? Because he has low elf esteem.
