@@ -1,1 +1,1 @@
-## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
