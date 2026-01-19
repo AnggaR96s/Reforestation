@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## Where does Fonzie like to go for lunch? Chick-Fil-Eyyyyyyyy.
