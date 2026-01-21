@@ -1,1 +1,1 @@
-## When people are sad, I sometimes let them colour in my tattoos. Sometimes all they need is a shoulder to crayon.
+## How do you find Will Smith in the snow?  Look for fresh prints.
