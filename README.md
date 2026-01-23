@@ -1,1 +1,1 @@
-## Why do pirates not know the alphabet? They always get stuck at "C".
+## An apple a day keeps the bullies away. If you throw it hard enough.
