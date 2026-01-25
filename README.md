@@ -1,1 +1,2 @@
-## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
+## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
+## "Pop," goes the weasel.
