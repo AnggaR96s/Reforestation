@@ -1,2 +1,1 @@
-## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
-## "Pop," goes the weasel.
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
