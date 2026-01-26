@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## I ordered a chicken and an egg from Amazon. I'll let you know.
