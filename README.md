@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
