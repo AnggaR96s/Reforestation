@@ -1,1 +1,1 @@
-## What do you call an eagle who can play the piano? Talonted!
+## Why are graveyards so noisy? Because of all the coffin.
