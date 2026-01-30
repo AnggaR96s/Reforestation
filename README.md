@@ -1,1 +1,1 @@
-## What do prisoners use to call each other? Cell phones.
+## Where did Captain Hook get his hook? From a second hand store.
