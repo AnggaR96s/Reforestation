@@ -1,1 +1,1 @@
-## Where did Captain Hook get his hook? From a second hand store.
+## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
