@@ -1,1 +1,1 @@
-## Every morning when I go out, I get hit by bicycle. Every morning!  It's a vicious cycle.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
