@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
