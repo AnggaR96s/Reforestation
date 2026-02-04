@@ -1,1 +1,1 @@
-## I used to have a job at a calendar factory but I got the sack because I took a couple of days off.
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
