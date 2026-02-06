@@ -1,1 +1,1 @@
-## Past, present, and future walked into a bar.... It was tense.
+## Why did the clown have neck pain? - Because he slept funny
