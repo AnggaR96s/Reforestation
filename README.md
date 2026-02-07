@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## Whoever invented the knock-knock joke should get a no bell prize.
