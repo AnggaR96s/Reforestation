@@ -1,1 +1,1 @@
-## How much does a hipster weigh? An instagram.
+## A cannibal is someone who is fed up with people.
