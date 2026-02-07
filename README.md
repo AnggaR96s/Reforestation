@@ -1,1 +1,1 @@
-## A cannibal is someone who is fed up with people.
+## Why didn’t the orange win the race? It ran out of juice.
