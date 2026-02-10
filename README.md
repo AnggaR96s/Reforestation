@@ -1,1 +1,1 @@
-## I used to hate facial hair, but then it grew on me.
+## How do you teach a kid to climb stairs? There is a step by step guide.
