@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## I used to hate facial hair, but then it grew on me.
