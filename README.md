@@ -1,1 +1,1 @@
-## How was the snow globe feeling after the storm? A little shaken.
+## Why did the kid cross the playground? To get to the other slide.
