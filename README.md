@@ -1,1 +1,1 @@
-## What biscuit does a short person like? Shortbread. 
+## Why did the barber win the race? He took a short cut.
