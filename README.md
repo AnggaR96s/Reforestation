@@ -1,1 +1,1 @@
-## Why did the barber win the race? He took a short cut.
+## Why was Pavlov's beard so soft?  Because he conditioned it.
