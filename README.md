@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
