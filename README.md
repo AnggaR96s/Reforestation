@@ -1,1 +1,1 @@
-## Got a new suit recently made entirely of living plants. I wasn’t sure at first, but it’s grown on me
+## As I get older, I think of all the people I lost along the way. Maybe a career as a tour guide wasn't such a good idea.
