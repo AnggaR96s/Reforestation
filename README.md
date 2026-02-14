@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## How do you tell the difference between a crocodile and an alligator? You will see one later and one in a while.
