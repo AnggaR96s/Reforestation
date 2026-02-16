@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## What lies at the bottom of the ocean and twitches? A nervous wreck.
