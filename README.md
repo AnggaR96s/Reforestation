@@ -1,1 +1,1 @@
-## Why was the shirt happy to hang around the tank top? Because it was armless
+## How come the stadium got hot after the game? Because all of the fans left.
