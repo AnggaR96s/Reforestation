@@ -1,1 +1,1 @@
-## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
