@@ -1,1 +1,1 @@
-## Where does astronauts hangout after work? At the spacebar.
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
