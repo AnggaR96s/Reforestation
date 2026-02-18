@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
