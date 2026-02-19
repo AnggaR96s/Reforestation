@@ -1,1 +1,1 @@
-## What did the father tomato say to the baby tomato whilst on a family walk? Ketchup.
+## Two parrots are sitting on a perch. One turns to the other and asks, "do you smell fish?"
