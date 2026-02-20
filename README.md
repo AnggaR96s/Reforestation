@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## Why are fish easy to weigh? Because they have their own scales.
