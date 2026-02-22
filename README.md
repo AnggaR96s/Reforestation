@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
