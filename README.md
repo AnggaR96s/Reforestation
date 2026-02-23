@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## Did you hear about the runner who was criticized? He just took it in stride
