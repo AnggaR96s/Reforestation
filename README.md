@@ -1,1 +1,1 @@
-## I started a new business making yachts in my attic this year...the sails are going through the roof
+## Why do ducks make great detectives? They always quack the case.
