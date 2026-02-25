@@ -1,1 +1,1 @@
-## “Doctor, I’ve broken my arm in several places” Doctor “Well don’t go to those places.”
+## The first time I got a universal remote control I thought to myself, "This changes everything"
