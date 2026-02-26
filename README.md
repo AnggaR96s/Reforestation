@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## Someone broke into my house last night and stole my limbo trophy. How low can you go?
