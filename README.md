@@ -1,1 +1,1 @@
-## How many kids with ADD does it take to change a lightbulb? Let's go ride bikes!
+## Why does Superman get invited to dinners? Because he is a Supperhero.
