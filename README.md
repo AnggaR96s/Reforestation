@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## Why does Han Solo like gum? It's chewy!
