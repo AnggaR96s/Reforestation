@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## Why do ducks make great detectives? They always quack the case.
