@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## Why didn’t the skeleton cross the road? Because he had no guts.
