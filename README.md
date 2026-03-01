@@ -1,1 +1,1 @@
-## Why didn’t the skeleton cross the road? Because he had no guts.
+## My cat was just sick on the carpet, I don’t think it’s feline well.
