@@ -1,1 +1,1 @@
-## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
+## I cut my finger cutting cheese. I know it may be a cheesy story but I feel grate now.
