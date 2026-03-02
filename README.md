@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
