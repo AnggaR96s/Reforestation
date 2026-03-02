@@ -1,1 +1,1 @@
-## Did you know crocodiles could grow up to 15 feet? But most just have 4.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
