@@ -1,1 +1,1 @@
-## I bought shoes from a drug dealer once. I don't know what he laced them with, but I was tripping all day.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
