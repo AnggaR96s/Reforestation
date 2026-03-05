@@ -1,1 +1,1 @@
-## Did you know you should always take an extra pair of pants golfing? Just in case you get a hole in one.
+## Guy told me today he did not know what cloning is. I told him, "that makes 2 of us."
