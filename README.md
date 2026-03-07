@@ -1,1 +1,2 @@
-## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
+## What is the best way to carve?
+## Whittle by whittle.
