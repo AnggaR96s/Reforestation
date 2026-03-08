@@ -1,1 +1,1 @@
-## What do you call an eagle who can play the piano? Talonted!
+## Where do young cows eat lunch? In the calf-ateria.
