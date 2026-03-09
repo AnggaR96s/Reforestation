@@ -1,1 +1,1 @@
-## What creature is smarter than a talking parrot? A spelling bee.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
