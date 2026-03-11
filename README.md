@@ -1,1 +1,3 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
