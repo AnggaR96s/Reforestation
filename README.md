@@ -1,1 +1,1 @@
-## I've started telling everyone about the benefits of eating dried grapes. It's all about raisin awareness.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
