@@ -1,1 +1,1 @@
-## What's the difference between a rooster and a crow? A rooster can crow but a crow cannot rooster.
+## How do you find Will Smith in the snow?  Look for fresh prints.
