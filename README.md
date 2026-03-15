@@ -1,1 +1,1 @@
-## I gave all my dead batteries away today, free of charge.
+## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
