@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## What did the sea say to the sand? "We have to stop meeting like this."
