@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## What happens to a frog's car when it breaks down? It gets toad.
