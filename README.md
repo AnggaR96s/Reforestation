@@ -1,1 +1,1 @@
-## What happens to a frog's car when it breaks down? It gets toad.
+## Why should you never trust a pig with a secret? Because it's bound to squeal.
