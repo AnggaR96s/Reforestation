@@ -1,1 +1,1 @@
-## Sgt.: Commissar! Commissar! The troops are revolting! Commissar: Well, you’re pretty repulsive yourself.
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
