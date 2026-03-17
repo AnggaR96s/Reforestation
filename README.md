@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## I ate a clock yesterday. It was so time consuming.
