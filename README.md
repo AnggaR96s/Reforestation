@@ -1,1 +1,1 @@
-## What did the digital clock say to the grandfather clock? Look, no hands!
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
