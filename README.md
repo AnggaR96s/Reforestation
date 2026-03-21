@@ -1,1 +1,1 @@
-## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
