@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## Why did the opera singer go sailing? They wanted to hit the high Cs.
