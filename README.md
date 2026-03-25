@@ -1,1 +1,1 @@
-## I was in an 80's band called the prevention. We were better than the cure.
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
