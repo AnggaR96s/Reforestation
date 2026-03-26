@@ -1,1 +1,1 @@
-## What did the 0 say to the 8? Nice belt.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
