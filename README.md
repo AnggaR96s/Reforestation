@@ -1,3 +1,1 @@
-## Doctor: Do you want to hear the good news or the bad news?
-## Patient: Good news please.
-## Doctor: we're naming a disease after you.
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
