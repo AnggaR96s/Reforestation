@@ -1,2 +1,1 @@
-## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
-## "Pop," goes the weasel.
+## What does a clock do when it's hungry? It goes back four seconds!
