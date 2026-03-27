@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## No matter how kind you are, German children are kinder.
