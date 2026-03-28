@@ -1,1 +1,1 @@
-## People who don't eat gluten are really going against the grain.
+## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
