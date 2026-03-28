@@ -1,1 +1,1 @@
-## What do you get when you cross a chicken with a skunk? A fowl smell!
+## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
