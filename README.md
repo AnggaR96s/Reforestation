@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## What do you get when you cross a chicken with a skunk? A fowl smell!
