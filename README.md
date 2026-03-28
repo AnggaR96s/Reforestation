@@ -1,1 +1,1 @@
-## So a duck walks into a pharmacy and says “Give me some chap-stick… and put it on my bill”
+## Did you hear that the police have a warrant out on a midget psychic ripping people off? It reads “Small medium at large.”
