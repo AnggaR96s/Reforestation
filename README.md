@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
