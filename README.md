@@ -1,1 +1,1 @@
-## What do you call a pig that knows karate? A pork chop!
+## How many South Americans does it take to change a lightbulb? A Brazilian
