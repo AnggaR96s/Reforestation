@@ -1,1 +1,1 @@
-## How does the moon cut his hair? Eclipse it.
+## Mountains aren't just funny, they are hill areas
