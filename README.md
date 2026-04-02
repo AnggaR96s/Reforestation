@@ -1,1 +1,1 @@
-## What kind of dog lives in a particle accelerator? A Fermilabrador Retriever.
+## What do you get if you put a duck in a cement mixer? Quacks in the pavement.
