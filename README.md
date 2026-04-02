@@ -1,1 +1,1 @@
-## Why are pirates called pirates? Because they arrr!
+## What kind of dinosaur loves to sleep? A stega-snore-us.
