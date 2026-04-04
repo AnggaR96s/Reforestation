@@ -1,1 +1,2 @@
-## A termite walks into a bar and asks “Is the bar tender here?”
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
