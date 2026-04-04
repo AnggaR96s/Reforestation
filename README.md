@@ -1,1 +1,1 @@
-## What do you get when you cross a snowman with a vampire? Frostbite.
+## People are making apocalypse jokes like there’s no tomorrow.
