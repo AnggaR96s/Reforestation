@@ -1,1 +1,1 @@
-## Animal Fact #25: Most bobcats are not named bob.
+## What do you get when you cross a snowman with a vampire? Frostbite.
