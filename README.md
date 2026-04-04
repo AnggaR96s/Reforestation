@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## A termite walks into a bar and asks “Is the bar tender here?”
