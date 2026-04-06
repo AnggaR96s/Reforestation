@@ -1,1 +1,1 @@
-## I once lost a banana at court but then I appealed. 
+## How come the stadium got hot after the game? Because all of the fans left.
