@@ -1,1 +1,2 @@
-## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
+## What's the difference between a seal and a sea lion?
+## An ion! 
