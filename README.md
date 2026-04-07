@@ -1,1 +1,1 @@
-## How come the stadium got hot after the game? Because all of the fans left.
+## I’m only familiar with 25 letters in the English language. I don’t know why.
