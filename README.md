@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## Did you hear about the cheese who saved the world? It was Legend-dairy!
