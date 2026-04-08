@@ -1,1 +1,1 @@
-## Doctor you've got you help me, I'm addicted to twitter. Doctor: I don't follow you.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
