@@ -1,1 +1,1 @@
-## I broke my finger at work today, on the other hand I'm completely fine.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
