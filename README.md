@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## What do birds give out on Halloween? Tweets.
