@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## What did the digital clock say to the grandfather clock? Look, no hands!
