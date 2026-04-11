@@ -1,1 +1,1 @@
-## What's orange and sounds like a parrot? A Carrot.
+## What do you call a bee that lives in America? A USB.
