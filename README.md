@@ -1,1 +1,1 @@
-## What did the big flower say to the littler flower? Hi, bud!
+## What's the difference between a guitar and a fish? You can tune a guitar but you can't "tuna" fish!
