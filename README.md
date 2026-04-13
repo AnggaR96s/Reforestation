@@ -1,1 +1,1 @@
-## Is there a hole in your shoe? No… Then how’d you get your foot in it?
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
