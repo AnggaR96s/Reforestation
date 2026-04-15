@@ -1,1 +1,1 @@
-## Have you ever heard of a music group called Cellophane? They mostly wrap.
+## Why is the ocean always blue? Because the shore never waves back.
