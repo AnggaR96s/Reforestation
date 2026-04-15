@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## Have you ever heard of a music group called Cellophane? They mostly wrap.
