@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
