@@ -1,1 +1,1 @@
-## A woman is on trial for beating her husband to death with his guitar collection. Judge says, ‘First offender?’ She says, ‘No, first a Gibson! Then a Fender!’
+## Why do scuba divers fall backwards into the water? Because if they fell forwards they’d still be in the boat.
