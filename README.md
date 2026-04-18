@@ -1,1 +1,1 @@
-## I fear for the calendar, its days are numbered.
+## What's a ninja's favorite type of shoes? Sneakers!
