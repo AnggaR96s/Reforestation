@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## I boiled a funny bone last night and had a laughing stock
