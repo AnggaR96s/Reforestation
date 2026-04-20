@@ -1,1 +1,1 @@
-## My wife told me to rub the herbs on the meat for better flavor. That's sage advice.
+## When Dad drops a pea off of his plate ‘oh dear I’ve pee’d on the table!
