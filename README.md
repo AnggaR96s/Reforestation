@@ -1,1 +1,1 @@
-## I got an A on my origami assignment when I turned my paper into my teacher
+## Why did Dracula lie in the wrong coffin? He made a grave mistake.
