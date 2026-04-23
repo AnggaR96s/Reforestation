@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## Did you hear about the Mexican train killer? He had loco motives
