@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
