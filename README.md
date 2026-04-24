@@ -1,1 +1,1 @@
-## I cut my finger chopping cheese, but I think that I may have grater problems.
+## Where did Captain Hook get his hook? From a second hand store.
