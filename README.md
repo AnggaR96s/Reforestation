@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## Why don't skeletons ride roller coasters? They don't have the stomach for it.
