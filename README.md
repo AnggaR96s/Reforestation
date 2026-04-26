@@ -1,1 +1,2 @@
-## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
+## Why did the cookie cry?
+## Because his mother was a wafer so long
