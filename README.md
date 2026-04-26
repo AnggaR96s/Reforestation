@@ -1,1 +1,1 @@
-## I am terrified of elevators. I’m going to start taking steps to avoid them.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
