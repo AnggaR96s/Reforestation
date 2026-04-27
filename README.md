@@ -1,1 +1,1 @@
-## Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
