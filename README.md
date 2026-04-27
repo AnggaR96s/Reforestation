@@ -1,1 +1,1 @@
-## Yesterday, I accidentally swallowed some food coloring. The doctor says I’m okay, but I feel like I’ve dyed a little inside.
+## Ben & Jerry's really need to improve their operation. The only way to get there is down a rocky road.
