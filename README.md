@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## Why can't your nose be 12 inches long? Because then it'd be a foot!
