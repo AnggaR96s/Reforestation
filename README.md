@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## Man, I really love my furniture... me and my recliner go way back.
