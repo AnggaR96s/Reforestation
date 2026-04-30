@@ -1,2 +1,1 @@
-## Why did Mozart kill all his chickens?
-## Because when he asked them who the best composer was, they'd all say "Bach bach bach!"
+## What do you call a dad that has fallen through the ice? A Popsicle.
