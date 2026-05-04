@@ -1,1 +1,1 @@
-## What did the grape do when he got stepped on? He let out a little wine.
+## Don't tell secrets in corn fields. Too many ears around.
