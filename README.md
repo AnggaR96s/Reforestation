@@ -1,1 +1,1 @@
-## To the guy who invented zero... thanks for nothing.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
