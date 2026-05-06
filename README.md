@@ -1,1 +1,1 @@
-## Why did the knife dress up in a suit? Because it wanted to look sharp
+## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
