@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## What do you call a nervous javelin thrower? Shakespeare.
