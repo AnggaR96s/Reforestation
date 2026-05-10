@@ -1,1 +1,1 @@
-## Why do nurses carry around red crayons? Sometimes they need to draw blood.
+## Dermatologists are always in a hurry. They spend all day making rash decisions. 
