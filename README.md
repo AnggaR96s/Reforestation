@@ -1,1 +1,1 @@
-## Two peanuts were walking down the street. One was a salted.
+## I've got a joke about vegetables for you... but it's a bit corny.
