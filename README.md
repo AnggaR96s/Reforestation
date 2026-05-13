@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## A termite walks into a bar and asks “Is the bar tender here?”
