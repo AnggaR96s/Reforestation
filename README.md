@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## Sore throats are a pain in the neck!
