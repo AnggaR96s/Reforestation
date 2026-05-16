@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## A Sandwich walks into a bar, the bartender says “Sorry, we don’t serve food here”
