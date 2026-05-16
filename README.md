@@ -1,1 +1,1 @@
-## How do you steal a coat? You jacket.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
