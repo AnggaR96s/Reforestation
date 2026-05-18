@@ -1,1 +1,1 @@
-## I've got a joke about vegetables for you... but it's a bit corny.
+## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
