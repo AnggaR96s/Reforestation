@@ -1,1 +1,1 @@
-## What did the traffic light say to the car as it passed? "Don't look I'm changing!"
+## What's the best thing about elevator jokes? They work on so many levels.
