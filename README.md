@@ -1,1 +1,1 @@
-## What do you give a sick lemon? Lemonaid.
+## Why did the scarecrow win an award? Because he was outstanding in his field.
