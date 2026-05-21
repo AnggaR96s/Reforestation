@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
