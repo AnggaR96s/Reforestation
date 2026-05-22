@@ -1,1 +1,1 @@
-## If you walk into a forest and cut down a tree, but the tree doesn't understand why you cut it down, do you think it's stumped?
+## Why is it a bad idea to iron your four-leaf clover? Cause you shouldn't press your luck.
