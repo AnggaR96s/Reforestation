@@ -1,1 +1,1 @@
-## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
+## I just wrote a book on reverse psychology. Do not read it!
