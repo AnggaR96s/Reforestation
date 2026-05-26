@@ -1,1 +1,1 @@
-## I just wrote a book on reverse psychology. Do not read it!
+## Me and my mates are in a band called Duvet. We're a cover band.
