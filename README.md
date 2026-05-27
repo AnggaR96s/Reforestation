@@ -1,1 +1,1 @@
-## Why was it called the dark ages? Because of all the knights. 
+## What do you call a fat psychic? A four-chin teller.
