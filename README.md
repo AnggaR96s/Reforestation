@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## What did the digital clock say to the grandfather clock? Look, no hands!
