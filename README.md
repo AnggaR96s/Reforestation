@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
