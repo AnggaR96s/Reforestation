@@ -1,1 +1,1 @@
-## My pet mouse 'Elvis' died last night. He was caught in a trap..
+## Americans can't switch from pounds to kilograms overnight. That would cause mass confusion.
