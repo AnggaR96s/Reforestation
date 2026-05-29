@@ -1,1 +1,1 @@
-## Did you know that ghosts call their true love their ghoul-friend?
+## I was just looking at my ceiling. Not sure if it’s the best ceiling in the world, but it’s definitely up there.
