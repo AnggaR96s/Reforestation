@@ -1,1 +1,1 @@
-## How do you make holy water? You boil the hell out of it.
+## Leather is great for sneaking around because it's made of hide.
