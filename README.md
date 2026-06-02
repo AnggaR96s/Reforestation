@@ -1,1 +1,1 @@
-## Why did the sentence fail the driving test? It never came to a full stop.
+## What did the judge say to the dentist? Do you swear to pull the tooth, the whole tooth and nothing but the tooth?
