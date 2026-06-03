@@ -1,1 +1,1 @@
-## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
+## I broke my finger at work today, on the other hand I'm completely fine.
