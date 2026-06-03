@@ -1,1 +1,1 @@
-## What do you call a fat psychic? A four-chin teller.
+## Why did the fireman wear red, white, and blue suspenders? To hold his pants up.
