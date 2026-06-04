@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Somebody stole my Microsoft Office and they're going to pay - you have my Word.
