@@ -1,1 +1,1 @@
-## If at first you don't succeed, sky diving is not for you!
+## To the guy who invented zero... thanks for nothing.
