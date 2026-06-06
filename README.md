@@ -1,1 +1,1 @@
-## Thanks for explaining the word "many" to me. It means a lot.
+## To the guy who invented zero... thanks for nothing.
