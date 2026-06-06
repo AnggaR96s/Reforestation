@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
