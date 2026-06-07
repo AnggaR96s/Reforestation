@@ -1,1 +1,1 @@
-## Where do rabbits go after they get married? On a bunny-moon.
+## I thought about going on an all-almond diet. But that's just nuts.
