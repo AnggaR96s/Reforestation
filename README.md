@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## Where do rabbits go after they get married? On a bunny-moon.
