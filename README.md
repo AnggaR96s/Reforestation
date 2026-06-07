@@ -1,1 +1,3 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
