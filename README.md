@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## Why is there always a gate around cemeteries? Because people are always dying to get in.
