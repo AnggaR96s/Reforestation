@@ -1,2 +1,1 @@
-## What is red and smells like blue paint?
-## Red paint!
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
