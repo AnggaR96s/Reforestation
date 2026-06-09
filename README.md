@@ -1,1 +1,1 @@
-## This is my step ladder. I never knew my real ladder.
+## What do you call two guys hanging out by your window? Kurt & Rod.
