@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## I been watching a channel on TV that is strictly just about origami — of course it is paper-view.
