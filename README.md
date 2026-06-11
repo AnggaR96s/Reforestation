@@ -1,1 +1,1 @@
-## I used to work for a soft drink can crusher. It was soda pressing.
+## I asked a frenchman if he played video games. He said "Wii"
