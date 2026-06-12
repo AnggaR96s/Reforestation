@@ -1,1 +1,1 @@
-## Don't trust atoms. They make up everything.
+## Do you want a brief explanation of what an acorn is? In a nutshell, it's an oak tree.
