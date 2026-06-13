@@ -1,1 +1,1 @@
-## What do computers and air conditioners have in common? They both become useless when you open windows.
+## What did one wall say to the other wall? I'll meet you at the corner!
