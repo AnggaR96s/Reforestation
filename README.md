@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Why did the knife dress up in a suit? Because it wanted to look sharp
