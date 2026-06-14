@@ -1,1 +1,2 @@
-## What do you call a magician who has lost their magic? Ian.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
