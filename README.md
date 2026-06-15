@@ -1,2 +1,1 @@
-## "Dad, I'm cold."
-## "Go stand in the corner, I hear it's 90 degrees."
+## Wife told me to take the spider out instead of killing it... We had some drinks, cool guy, wants to be a web developer.
