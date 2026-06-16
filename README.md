@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## Did you hear about the cheese factory that exploded in France? There was nothing left but de Brie.
