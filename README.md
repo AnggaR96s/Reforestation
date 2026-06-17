@@ -1,1 +1,1 @@
-## It was so cold yesterday my computer froze. My own fault though, I left too many windows open.
+## A termite walks into a bar and asks “Is the bar tender here?”
