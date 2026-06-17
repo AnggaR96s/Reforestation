@@ -1,3 +1,1 @@
-## Where was the Declaration of Independence signed?
-## 
-## At the bottom! 
+## Why was the shirt happy to hang around the tank top? Because it was armless
