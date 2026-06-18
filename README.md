@@ -1,1 +1,1 @@
-## Why was the shirt happy to hang around the tank top? Because it was armless
+## What is a vampire's favorite fruit? A blood orange.
