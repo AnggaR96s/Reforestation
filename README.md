@@ -1,1 +1,1 @@
-## What is a vampire's favorite fruit? A blood orange.
+## I’m on a whiskey diet. I’ve lost three days already.
