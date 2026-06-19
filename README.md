@@ -1,1 +1,1 @@
-## Why is the new Kindle screen textured to look like paper? So you feel write at home.
+## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
