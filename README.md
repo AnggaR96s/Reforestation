@@ -1,2 +1,1 @@
-## Q: What did the spaghetti say to the other spaghetti?
-## A: Pasta la vista, baby!
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
