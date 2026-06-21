@@ -1,1 +1,1 @@
-## Man, I really love my furniture... me and my recliner go way back.
+## My pet mouse 'Elvis' died last night. He was caught in a trap..
