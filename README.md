@@ -1,1 +1,1 @@
-## Did you know the first French fries weren't actually cooked in France? They were cooked in Greece.
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
