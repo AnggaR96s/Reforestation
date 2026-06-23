@@ -1,1 +1,1 @@
-## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
+## "Why do seagulls fly over the ocean?" "Because if they flew over the bay, we'd call them bagels."
