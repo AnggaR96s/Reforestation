@@ -1,1 +1,1 @@
-## What does an angry pepper do? It gets jalapeño face.
+## I don't trust sushi, there's something fishy about it.
