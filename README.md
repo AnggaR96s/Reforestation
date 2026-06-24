@@ -1,1 +1,1 @@
-## I don't trust sushi, there's something fishy about it.
+## I'm practicing for a bug-eating contest and I've got butterflies in my stomach.
