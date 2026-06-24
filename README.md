@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
