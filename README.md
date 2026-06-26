@@ -1,1 +1,1 @@
-## When is a door not a door? When it's ajar.
+## I heard there was a new store called Moderation. They have everything there
