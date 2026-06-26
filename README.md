@@ -1,1 +1,1 @@
-## What animal is always at a game of cricket? A bat.
+## Why does Waldo only wear stripes? Because he doesn't want to be spotted.
