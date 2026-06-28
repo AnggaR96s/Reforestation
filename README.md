@@ -1,1 +1,1 @@
-## How can you tell a vampire has a cold? They start coffin.
+## What did the shy pebble wish for? That she was a little boulder.
