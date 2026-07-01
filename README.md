@@ -1,1 +1,1 @@
-## What did the mountain climber name his son? Cliff.
+## Why do choirs keep buckets handy? So they can carry their tune
