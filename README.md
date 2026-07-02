@@ -1,1 +1,1 @@
-## Without geometry life is pointless.
+## Frankenstein enters a bodybuilding competition and finds he has seriously misunderstood the objective.
