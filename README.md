@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## Writing with a broken pencil is pointless.
