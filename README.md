@@ -1,1 +1,1 @@
-## Writing with a broken pencil is pointless.
+## Did you hear the joke about the wandering nun? She was a roman catholic.
