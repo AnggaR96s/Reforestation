@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## Coffee has a tough time at my house, every morning it gets mugged.
