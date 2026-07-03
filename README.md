@@ -1,1 +1,1 @@
-## Did you hear the joke about the wandering nun? She was a roman catholic.
+## This morning I was wondering where the sun was, but then it dawned on me.
