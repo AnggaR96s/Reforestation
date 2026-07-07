@@ -1,1 +1,1 @@
-## Is the pool safe for diving? It deep ends.
+## How many bones are in the human hand? A handful of them.
