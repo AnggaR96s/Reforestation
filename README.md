@@ -1,1 +1,1 @@
-## How many bones are in the human hand? A handful of them.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
