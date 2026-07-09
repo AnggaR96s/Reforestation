@@ -1,1 +1,1 @@
-## Why do mathematicians hate the U.S.? Because it's indivisible.
+## How many South Americans does it take to change a lightbulb? A Brazilian
