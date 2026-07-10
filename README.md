@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## What do you call two guys hanging out by your window? Kurt & Rod.
