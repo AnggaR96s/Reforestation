@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## Who did the wizard marry? His ghoul-friend
