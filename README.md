@@ -1,1 +1,1 @@
-## Why is there always a gate around cemeteries? Because people are always dying to get in.
+## I've been trying to come up with a dad joke about momentum . . . but I just can't seem to get it going.
