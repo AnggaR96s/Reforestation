@@ -1,1 +1,1 @@
-## A dad washes his car with his son. But after a while, the son says, "why can't you just use a sponge?"
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
