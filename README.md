@@ -1,1 +1,1 @@
-## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
+## Why did the cookie cry? It was feeling crumby.
