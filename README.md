@@ -1,1 +1,1 @@
-## Why are mummys scared of vacation? They're afraid to unwind.
+## Why do we tell actors to “break a leg?” Because every play has a cast.
