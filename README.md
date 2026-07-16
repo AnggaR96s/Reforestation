@@ -1,1 +1,3 @@
-## Why do we tell actors to “break a leg?” Because every play has a cast.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
