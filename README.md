@@ -1,1 +1,1 @@
-## what do you call a dog that can do magic tricks? a labracadabrador
+## Don’t interrupt someone working intently on a puzzle. Chances are, you’ll hear some crosswords.
