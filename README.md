@@ -1,1 +1,1 @@
-## Breaking news! Energizer Bunny arrested – charged with battery.
+## When does a joke become a dad joke? When it becomes apparent.
