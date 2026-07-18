@@ -1,1 +1,1 @@
-## What kind of music do planets listen to? Nep-tunes.
+## This morning I was wondering where the sun was, but then it dawned on me.
