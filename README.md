@@ -1,1 +1,1 @@
-## What do you call a fish wearing a bowtie? Sofishticated.
+## What did the shy pebble wish for? That she was a little boulder.
