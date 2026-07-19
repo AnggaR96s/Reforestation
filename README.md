@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## My dog used to chase people on a bike a lot. It got so bad I had to take his bike away.
