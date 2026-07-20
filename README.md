@@ -1,1 +1,1 @@
-## What do you call a snake who builds houses? A boa constructor!
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
