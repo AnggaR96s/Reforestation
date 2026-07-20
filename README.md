@@ -1,1 +1,1 @@
-## Why did the coffee file a police report? It got mugged.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
