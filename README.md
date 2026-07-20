@@ -1,1 +1,1 @@
-## What do bees do after they are married? They go on a honeymoon.
+## Why did the coffee file a police report? It got mugged.
