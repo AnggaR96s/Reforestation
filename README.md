@@ -1,1 +1,1 @@
-## “My Dog has no nose.” “How does he smell?” “Awful”
+## My friend told me that pepper is the best seasoning for a roast, but I took it with a grain of salt.
