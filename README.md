@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
