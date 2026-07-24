@@ -1,1 +1,1 @@
-## How do robots eat guacamole? With computer chips.
+## What is a tornado's favorite game to play? Twister!
