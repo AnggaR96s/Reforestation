@@ -1,1 +1,1 @@
-## I decided to sell my Hoover… well it was just collecting dust.
+## How do you fix a damaged jack-o-lantern? You use a pumpkin patch.
