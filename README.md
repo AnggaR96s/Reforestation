@@ -1,1 +1,1 @@
-## I've just written a song about a tortilla. Well, it is more of a rap really.
+## Did you hear about the cow who jumped over the barbed wire fence? It was udder destruction.
