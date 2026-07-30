@@ -1,1 +1,1 @@
-## Why couldn't the kid see the pirate movie? Because it was rated arrr!
+## An apple a day keeps the bullies away. If you throw it hard enough.
