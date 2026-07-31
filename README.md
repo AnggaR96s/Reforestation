@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## How come the stadium got hot after the game? Because all of the fans left.
