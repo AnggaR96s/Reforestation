@@ -1,1 +1,1 @@
-## Have you heard of the band 1023MB? They haven't got a gig yet.
+## Did you hear that David lost his ID in prague? Now we just have to call him Dav.
