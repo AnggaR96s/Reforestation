@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## Did you hear the one about the guy with the broken hearing aid? Neither did he.
