@@ -1,1 +1,1 @@
-## Did you hear the one about the guy with the broken hearing aid? Neither did he.
+## There’s a new type of broom out, it’s sweeping the nation.
