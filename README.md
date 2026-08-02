@@ -1,1 +1,1 @@
-## There’s a new type of broom out, it’s sweeping the nation.
+## Did you hear about the chameleon who couldn't change color? They had a reptile dysfunction.
