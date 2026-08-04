@@ -1,1 +1,1 @@
-## Why do ducks make great detectives? They always quack the case.
+## Why do fish live in salt water? Because pepper makes them sneeze!
