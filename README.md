@@ -1,1 +1,1 @@
-## Why did the cookie cry? It was feeling crumby.
+## It doesn't matter how much you push the envelope. It will still be stationary.
