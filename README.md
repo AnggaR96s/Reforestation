@@ -1,1 +1,1 @@
-## It doesn't matter how much you push the envelope. It will still be stationary.
+## I saw my husband trip and fall while carrying a laundry basket full of ironed clothes. I watched it all unfold.
