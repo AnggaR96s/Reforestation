@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## Don't buy flowers at a monastery. Because only you can prevent florist friars.
