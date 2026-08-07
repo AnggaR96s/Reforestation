@@ -1,1 +1,2 @@
-## I’m only familiar with 25 letters in the English language. I don’t know why.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
