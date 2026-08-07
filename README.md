@@ -1,1 +1,1 @@
-## I heard there was a new store called Moderation. They have everything there
+## What did the doctor say to the gingerbread man who broke his leg? Try icing it.
