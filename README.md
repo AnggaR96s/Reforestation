@@ -1,2 +1,1 @@
-## What did the green grape say to the purple grape?
-## BREATH!!
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
