@@ -1,1 +1,2 @@
-## What do you call an elephant that doesn’t matter? An irrelephant.
+## Hostess: Do you have a preference of where you sit?
+## Dad: Down.
