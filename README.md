@@ -1,2 +1,1 @@
-## Hostess: Do you have a preference of where you sit?
-## Dad: Down.
+## What's the difference between roast beef and pea soup. Anyone can roast beef, but nobody can pee soup.
