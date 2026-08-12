@@ -1,1 +1,1 @@
-## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
+## Every night at 11:11, I make a wish that someone will come fix my broken clock.
