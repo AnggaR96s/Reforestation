@@ -1,1 +1,1 @@
-## A man is washing the car with his son. The son asks...... "Dad, can’t you just use a sponge?"
+## I wear a stethoscope so that in a medical emergency I can teach people a valuable lesson about assumptions.
