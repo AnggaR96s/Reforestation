@@ -1,1 +1,1 @@
-## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
