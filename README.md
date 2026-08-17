@@ -1,1 +1,1 @@
-## What did one plate say to the other plate? Dinner is on me!
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
