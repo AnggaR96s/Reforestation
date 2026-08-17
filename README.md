@@ -1,1 +1,1 @@
-## Why did the m&m go to school? Because it wanted to be a Smartie!
+## What did one plate say to the other plate? Dinner is on me!
