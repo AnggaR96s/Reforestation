@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
