@@ -1,1 +1,1 @@
-## What did the calculator say to the student? You can count on me.
+## Why are graveyards so noisy? Because of all the coffin.
