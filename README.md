@@ -1,1 +1,1 @@
-## How do hens stay fit? They always egg-cercise!
+## What do you call a dictionary on drugs? High definition.
