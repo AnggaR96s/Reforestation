@@ -1,1 +1,1 @@
-## What is a witch's favorite subject in school? Spelling!
+## What do you call a boomerang that won't come back? A stick.
