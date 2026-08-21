@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## How does Darth Vader like his toast? On the dark side.
