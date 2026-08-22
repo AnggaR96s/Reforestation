@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
