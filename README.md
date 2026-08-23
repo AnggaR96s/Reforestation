@@ -1,1 +1,1 @@
-## How does a French skeleton say hello? Bone-jour.
+## What do you call a droid that takes the long way around? R2 detour.
