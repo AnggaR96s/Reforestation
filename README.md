@@ -1,1 +1,1 @@
-## People are making apocalypse jokes like there’s no tomorrow.
+## I've got a joke about vegetables for you... but it's a bit corny.
