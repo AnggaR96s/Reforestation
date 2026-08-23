@@ -1,1 +1,1 @@
-## What do you call a droid that takes the long way around? R2 detour.
+## People are making apocalypse jokes like there’s no tomorrow.
