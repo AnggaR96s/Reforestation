@@ -1,1 +1,1 @@
-## Shout out to my grandma, that's the only way she can hear.
+## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
