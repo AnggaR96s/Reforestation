@@ -1,1 +1,1 @@
-## My boss told me to have a good day... so I went home.
+## Why can't eggs have love? They will break up too soon.
