@@ -1,1 +1,1 @@
-## Why did the clown have neck pain? - Because he slept funny
+## Why didn’t the skeleton cross the road? Because he had no guts.
