@@ -1,1 +1,3 @@
-## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
