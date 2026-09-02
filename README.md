@@ -1,1 +1,1 @@
-## Remember, the best angle to approach a problem from is the "try" angle.
+## What's the difference between a poorly dressed man on a tricycle and a well dressed man on a bicycle? Attire.
