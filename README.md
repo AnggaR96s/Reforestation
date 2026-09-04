@@ -1,1 +1,1 @@
-## How many tickles does it take to tickle an octopus? Ten-tickles!
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
