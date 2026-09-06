@@ -1,1 +1,1 @@
-## What do you get when you cross a pig and a pineapple? A porky pine
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
