@@ -1,1 +1,1 @@
-## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
+## Did you hear about the runner who was criticized? He just took it in stride
