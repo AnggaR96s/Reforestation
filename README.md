@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## The other day I was listening to a song about superglue, it’s been stuck in my head ever since.
