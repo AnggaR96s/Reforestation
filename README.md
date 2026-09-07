@@ -1,1 +1,1 @@
-## What do you call a boomerang that won't come back? A stick.
+## I asked my date to go to the gym the other day. They never showed up. That's when I knew we wouldn't work out.
