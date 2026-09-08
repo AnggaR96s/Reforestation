@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## Why do bears have hairy coats? Fur protection.
