@@ -1,1 +1,1 @@
-## Why did the belt go to prison? He held up a pair of pants!
+## Every machine in the coin factory broke down all of a sudden without explanation. It just doesn’t make any cents.
