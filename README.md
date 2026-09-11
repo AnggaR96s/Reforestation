@@ -1,1 +1,2 @@
-## Why did the banana go to the doctor? He was not "peeling" well.
+## "Dad, I'm cold."
+## "Go stand in the corner, I hear it's 90 degrees."
