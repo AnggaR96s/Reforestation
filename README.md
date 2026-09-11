@@ -1,1 +1,1 @@
-## In my career as a lumberjack I cut down exactly 52,487 trees. I know because I kept a log.
+## If you think swimming with dolphins is expensive, you should try swimming with sharks--it cost me an arm and a leg!
