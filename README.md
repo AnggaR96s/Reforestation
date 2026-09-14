@@ -1,1 +1,1 @@
-## This is my step ladder. I never knew my real ladder.
+## I considered building the patio by myself. But I didn't have the stones.
