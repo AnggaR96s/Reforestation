@@ -1,1 +1,1 @@
-## If two vegans are having an argument, is it still considered beef?
+## I used to work in a shoe recycling shop. It was sole destroying.
