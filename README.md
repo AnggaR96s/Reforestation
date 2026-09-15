@@ -1,1 +1,1 @@
-## Where do bees go to the bathroom?  The BP station.
+## A man walks into a bar and orders helicopter flavor chips. The barman replies “sorry mate we only do plain”
