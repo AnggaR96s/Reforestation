@@ -1,1 +1,1 @@
-## Do you know where you can get chicken broth in bulk? The stock market.
+## Why do mathematicians hate the U.S.? Because it's indivisible.
