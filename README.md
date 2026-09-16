@@ -1,1 +1,1 @@
-## What do you call an alligator in a vest? An in-vest-igator!
+## What did the Zen Buddist say to the hotdog vendor? Make me one with everything.
