@@ -1,1 +1,1 @@
-## I have kleptomania, but when it gets bad, I take something for it.
+## I boiled a funny bone last night and had a laughing stock
