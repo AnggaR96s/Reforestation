@@ -1,1 +1,2 @@
-## I started a new business making yachts in my attic this year...the sails are going through the roof
+## Cosmetic surgery used to be such a taboo subject.
+## Now you can talk about Botox and nobody raises an eyebrow.
