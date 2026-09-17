@@ -1,1 +1,1 @@
-## Why was the broom late for the meeting? He overswept.
+## I have kleptomania, but when it gets bad, I take something for it.
