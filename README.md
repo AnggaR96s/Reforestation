@@ -1,1 +1,1 @@
-## I boiled a funny bone last night and had a laughing stock
+## Breaking news! Energizer Bunny arrested – charged with battery.
