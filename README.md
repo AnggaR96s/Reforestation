@@ -1,1 +1,1 @@
-## How do you make a 'one' disappear? You add a 'g' and it's 'gone'
+## Where do rabbits go after they get married? On a bunny-moon.
