@@ -1,1 +1,1 @@
-## What do you get when you cross a bee and a sheep? A bah-humbug.
+## Where does Napoleon keep his armies? In his sleevies.
