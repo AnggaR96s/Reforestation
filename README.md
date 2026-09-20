@@ -1,1 +1,1 @@
-## This morning I was wondering where the sun was, but then it dawned on me.
+## Why was it called the dark ages? Because of all the knights. 
