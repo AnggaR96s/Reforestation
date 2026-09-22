@@ -1,1 +1,1 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
