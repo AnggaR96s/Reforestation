@@ -1,1 +1,1 @@
-## How do you know if there’s an elephant under your bed? Your head hits the ceiling!
+## Bought a new jacket suit the other day and it burst into flames. Well, it was a blazer
