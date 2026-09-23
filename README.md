@@ -1,1 +1,1 @@
-## Why is it so windy inside an arena? All those fans.
+## Sore throats are a pain in the neck!
