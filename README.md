@@ -1,1 +1,1 @@
-## Why does Han Solo like gum? It's chewy!
+## Mountains aren't just funny, they are hill areas
