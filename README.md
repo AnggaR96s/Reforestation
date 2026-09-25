@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## “My Dog has no nose.” “How does he smell?” “Awful”
