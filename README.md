@@ -1,1 +1,1 @@
-## What's the difference between a hippo and a zippo? One is really heavy, the other is a little lighter.
+## My new thesaurus is terrible. In fact, it's so bad, I'd say it's terrible.
