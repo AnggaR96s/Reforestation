@@ -1,1 +1,1 @@
-## Don't tell secrets in corn fields. Too many ears around.
+## A man got hit in the head with a can of Coke, but he was alright because it was a soft drink.
