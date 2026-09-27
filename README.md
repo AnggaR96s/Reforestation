@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## Don't tell secrets in corn fields. Too many ears around.
