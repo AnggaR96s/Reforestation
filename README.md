@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## Where do sheep go to get their hair cut? The baa-baa shop.
