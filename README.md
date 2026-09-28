@@ -1,1 +1,1 @@
-## Where do sheep go to get their hair cut? The baa-baa shop.
+## Why do crabs never give to charity? Because they’re shellfish.
