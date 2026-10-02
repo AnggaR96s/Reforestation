@@ -1,1 +1,1 @@
-## Two dyslexics walk into a bra.
+## How does a dyslexic poet write? Inverse.
