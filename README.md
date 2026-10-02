@@ -1,1 +1,1 @@
-## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
+## What did the beaver say to the tree? It's been nice gnawing you.
