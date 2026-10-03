@@ -1,1 +1,1 @@
-## How does a dyslexic poet write? Inverse.
+## Sore throats are a pain in the neck!
