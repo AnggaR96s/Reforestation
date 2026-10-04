@@ -1,1 +1,1 @@
-## Past, present, and future walked into a bar.... It was tense.
+## Astronomers got tired watching the moon go around the earth for 24 hours. They decided to call it a day.
