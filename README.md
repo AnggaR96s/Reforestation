@@ -1,1 +1,1 @@
-## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
