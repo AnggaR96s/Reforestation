@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
