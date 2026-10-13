@@ -1,1 +1,1 @@
-## I accidentally drank a bottle of invisible ink. Now I’m in hospital, waiting to be seen.
+## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
