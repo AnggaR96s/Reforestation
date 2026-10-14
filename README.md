@@ -1,1 +1,1 @@
-## A quick shoutout to all of the sidewalks out there... Thanks for keeping me off the streets.
+## Man, I really love my furniture... me and my recliner go way back.
