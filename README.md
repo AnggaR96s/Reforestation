@@ -1,7 +1,1 @@
-## Wife: Honey I’m pregnant.
-## 
-## Me: Well…. what do we do now?
-## 
-## Wife: Well, I guess we should go to a baby doctor.
-## 
-## Me: Hm.. I think I’d be a lot more comfortable going to an adult doctor.
+## Last night me and my girlfriend watched three DVDs back to back. Luckily I was the one facing the TV.
