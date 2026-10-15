@@ -1,1 +1,1 @@
-## Whats a penguins favorite relative? Aunt Arctica.
+## Mountains aren't just funny, they are hill areas
