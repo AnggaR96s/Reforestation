@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## I got fired from a florist, apparently I took too many leaves.
