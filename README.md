@@ -1,1 +1,1 @@
-## I got fired from a florist, apparently I took too many leaves.
+## Why did the kid throw the clock out the window? He wanted to see time fly!
