@@ -1,1 +1,1 @@
-## What did the Buffalo say to his little boy when he dropped him off at school? Bison.
+## A Skeleton walked into a bar he said I need a beer and a mop
