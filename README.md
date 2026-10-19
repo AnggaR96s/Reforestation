@@ -1,1 +1,1 @@
-## Where do you learn to make banana splits? At sundae school.
+## I decided to sell my Hoover… well it was just collecting dust.
