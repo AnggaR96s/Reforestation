@@ -1,1 +1,1 @@
-## Why is the ocean always blue? Because the shore never waves back.
+## Why didn’t the skeleton cross the road? Because he had no guts.
