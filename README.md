@@ -1,1 +1,1 @@
-## The rotation of earth really makes my day.
+## Why did the kid cross the playground? To get to the other slide.
