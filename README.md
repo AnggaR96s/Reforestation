@@ -1,1 +1,1 @@
-## Why do wizards clean their teeth three times a day? To prevent bat breath!
+## Child: Dad, make me a sandwich. Dad: Poof! You're a sandwich.
