@@ -1,2 +1,1 @@
-## Some people say that I never got over my obsession with Phil Collins.
-## But take a look at me now.
+## Can I watch the TV? Dad: Yes, but don’t turn it on.
