@@ -1,1 +1,1 @@
-## Why do cows not have toes? They lactose!
+## Why are pirates called pirates? Because they arrr!
