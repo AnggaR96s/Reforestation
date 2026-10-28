@@ -1,1 +1,1 @@
-## An apple a day keeps the bullies away. If you throw it hard enough.
+## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
