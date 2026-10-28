@@ -1,1 +1,1 @@
-## Where do fish keep their money? In the riverbank
+## An apple a day keeps the bullies away. If you throw it hard enough.
