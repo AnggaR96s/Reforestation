@@ -1,1 +1,1 @@
-## I needed a password eight characters long so I picked Snow White and the Seven Dwarfs.
+## Why did the teddy bear say “no” to dessert? Because she was stuffed.
