@@ -1,1 +1,1 @@
-## Why did the teddy bear say “no” to dessert? Because she was stuffed.
+## Parallel lines have so much in common. It’s a shame they’ll never meet.
