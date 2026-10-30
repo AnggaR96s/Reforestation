@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## What do you call two guys hanging out by your window? Kurt & Rod.
