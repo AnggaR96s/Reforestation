@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## Did you hear about the campsite that got visited by Bigfoot? It got in tents.
