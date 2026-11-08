@@ -1,1 +1,1 @@
-## For Valentine's day, I decided to get my wife some beads for an abacus.  It's the little things that count.
+## I knew I shouldn't steal a mixer from work, but it was a whisk I was willing to take.
