@@ -1,1 +1,1 @@
-## How do you make a hankie dance? Put a little boogie in it.
+## Someone asked me, what's the ninth letter of the alphabet? It was a complete guess, but I was right.
