@@ -1,1 +1,1 @@
-## What is the hardest part about sky diving? The ground.
+## A red and a blue ship have just collided in the Caribbean. Apparently the survivors are marooned.
