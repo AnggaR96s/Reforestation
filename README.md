@@ -1,1 +1,1 @@
-## A girl once asked me what my heart desired, apparently blood, oxygen and neural messages were all wrong answers
+## Why are oranges the smartest fruit? Because they are made to concentrate. 
