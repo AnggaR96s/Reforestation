@@ -1,1 +1,1 @@
-## Why are oranges the smartest fruit? Because they are made to concentrate. 
+## What do you call a dad that has fallen through the ice? A Popsicle.
