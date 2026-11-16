@@ -1,1 +1,2 @@
-## Did you hear about the two thieves who stole a calendar? They each got six months.
+## What's the difference between a seal and a sea lion?
+## An ion! 
