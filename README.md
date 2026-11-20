@@ -1,1 +1,1 @@
-## My cat was just sick on the carpet, I don’t think it’s feline well.
+## Why did the girl smear peanut butter on the road? To go with the traffic jam.
