@@ -1,1 +1,1 @@
-## "I'll call you later." Don't call me later, call me Dad.
+## The urge to sing the Lion King song is just a whim away.
