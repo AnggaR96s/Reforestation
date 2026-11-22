@@ -1,1 +1,1 @@
-## The urge to sing the Lion King song is just a whim away.
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
