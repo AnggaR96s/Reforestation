@@ -1,1 +1,1 @@
-## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
+## What’s the longest word in the dictionary? Smiles. Because there’s a mile between the two S’s.
