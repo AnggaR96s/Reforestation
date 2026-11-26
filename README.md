@@ -1,1 +1,1 @@
-## What did the sea say to the sand? "We have to stop meeting like this."
+## It’s hard to explain puns to kleptomaniacs, because they take everything literally.
