@@ -1,1 +1,3 @@
-## What did one plate say to the other plate? Dinner is on me!
+## What's the worst part about being a cross-eyed teacher?
+## 
+## They can't control their pupils.
