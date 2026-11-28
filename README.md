@@ -1,1 +1,1 @@
-## What don't watermelons get married? Because they cantaloupe.
+## What did one plate say to the other plate? Dinner is on me!
